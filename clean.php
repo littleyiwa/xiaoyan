@@ -7,15 +7,15 @@
 <link rel="icon" type="image/x-icon" href="https://blogger.googleusercontent.com/img/a/AVvXsEg4N-LE56s3VxaB6uSZsdglQZYMLReJ8B1nycqxB_Jq_FvzRw2sg0_B6snjBjvS1ZxOCF6a_5jD8vXeWD9P0FwtbnbZhcCiF7wBuqI8rndWulcwtdUztsfxdk7eznNWh2_og6A2U9AQK7DfdYTQeB6iahvjjM7-FUTL-cSn6-U0azPuX1g7_zXy7XOCHjJ8" />
 <link rel="apple-touch-icon" href="https://blogger.googleusercontent.com/img/a/AVvXsEg4N-LE56s3VxaB6uSZsdglQZYMLReJ8B1nycqxB_Jq_FvzRw2sg0_B6snjBjvS1ZxOCF6a_5jD8vXeWD9P0FwtbnbZhcCiF7wBuqI8rndWulcwtdUztsfxdk7eznNWh2_og6A2U9AQK7DfdYTQeB6iahvjjM7-FUTL-cSn6-U0azPuX1g7_zXy7XOCHjJ8">
 <link rel="canonical" href="https://nexusenergyperu.com/">
-<link rel="amphtml" href="https://situs-togel-online1.pages.dev./">
-<link rel="alternate" href="https://situs-togel-online1.pages.dev./"> 
-<link rel="alternate" href="https://situs-togel-online1.pages.dev./" hreflang="id">
-<link rel="alternate" href="https://situs-togel-online1.pages.dev./" hreflang="en">
-<link rel="alternate" href="https://situs-togel-online1.pages.dev./" hreflang="en">
-<link rel="alternate" href="https://situs-togel-online1.pages.dev./" hreflang="x-default">
-<link rel="alternate" hreflang="id-ID" href="https://situs-togel-online1.pages.dev./" />
-<link rel="alternate" hreflang="en-US" href="https://situs-togel-online1.pages.dev./" />
-<link rel="alternate" hreflang="en-SG" href="https://situs-togel-online1.pages.dev./" />
+<link rel="amphtml" href="https://situs-togel-online1.pages.dev/">
+<link rel="alternate" href="https://situs-togel-online1.pages.dev/"> 
+<link rel="alternate" href="https://situs-togel-online1.pages.dev/" hreflang="id">
+<link rel="alternate" href="https://situs-togel-online1.pages.dev/" hreflang="en">
+<link rel="alternate" href="https://situs-togel-online1.pages.dev/" hreflang="en">
+<link rel="alternate" href="https://situs-togel-online1.pages.dev/" hreflang="x-default">
+<link rel="alternate" hreflang="id-ID" href="https://situs-togel-online1.pages.dev/" />
+<link rel="alternate" hreflang="en-US" href="https://situs-togel-online1.pages.dev/" />
+<link rel="alternate" hreflang="en-SG" href="https://situs-togel-online1.pages.dev/" />
 <link as='image' href='https://blogger.googleusercontent.com/img/a/AVvXsEhza4Tin2yvnNNsnxc7hCrdeuUxkFkHJXJFL9xhVRysNPZVDp6-SxSjV0jCgWmUN5pW5exZY55nQqj1Sd9lTF4JOwOa7nboYUNvpanF0nEZHcdkCn27rhItbGMBdWKJrP2Wnb-a0pQrhbipycoJsqLgfRLWv6KWpi64Cz9gZFdcdtvM3rS-MmRAEFE8EdbP' rel='preload'>
 <link crossorigin href='https://fonts.googleapis.com' rel='preconnect'>
 <link crossorigin href='https://ajax.googleapis.com' rel='preconnect'>
@@ -200,7 +200,7 @@
 
 </button></div>
 <div class='vc-header__cta'>
-<a data-rudderstack-event-type="cta" data-action="rudderstack--link-clicked#track navigation--tray-trigger#openTray" data-button-label="Create Account" data-targeted-tray="Create Account" id="create-link" href="https://situs-togel-online1.pages.dev./" class="link vc-header__cta-button btn--no-space btn c-link__button tp-btn--medium link--default link--strong">
+<a data-rudderstack-event-type="cta" data-action="rudderstack--link-clicked#track navigation--tray-trigger#openTray" data-button-label="Create Account" data-targeted-tray="Create Account" id="create-link" href="https://situs-togel-online1.pages.dev/" class="link vc-header__cta-button btn--no-space btn c-link__button tp-btn--medium link--default link--strong">
 <span class='link__content'>
 DAFTAR AKUN
 
@@ -331,9 +331,9 @@ TOTO ONLINE TERBAIK
 
         
                           <div class="n-columns-2">
-                                <a href="https://situs-togel-online1.pages.dev./" rel="nofollow noreferrer"
+                                <a href="https://situs-togel-online1.pages.dev/" rel="nofollow noreferrer"
                                  class="login">LOGIN</a>
-                               <a href="https://situs-togel-online1.pages.dev./" rel="nofollow noreferrer"
+                               <a href="https://situs-togel-online1.pages.dev/" rel="nofollow noreferrer"
                                   class="register">DAFTAR</a>
                                 </div>
                              </div>
@@ -630,8 +630,8 @@ Back
 <div class='m-cart-config__option radio-selector' data-action='change-&gt;rudderstack--filter-clicked#track' data-cart-id='9a8c68d58aaa0c110ea9655af8a790a4' data-controller='rudderstack--filter-clicked' data-filter-name='gender' data-rudderstack--filter-clicked-location-value='product_attributes'>
 <div class='m-cart-config__select-label'>
 </div>
-<a href="https://situs-togel-online1.pages.dev./" class="btn-x">DAFTAR DISINI</a>
-<a href="https://situs-togel-online1.pages.dev./" class="btn-x">LOGIN DISINI</a>
+<a href="https://situs-togel-online1.pages.dev/" class="btn-x">DAFTAR DISINI</a>
+<a href="https://situs-togel-online1.pages.dev/" class="btn-x">LOGIN DISINI</a>
 <style>
 .btn-x {
   display: inline-block;
@@ -3329,23 +3329,23 @@ height="0" width="0" style="display:none;visibility:hidden" rel="dns-prefetch"><
 
 <!-- HTML WIDGET FOOTER (Struktur Asli Anda) -->
 <div class="KOKITOTO">
-    <a href="https://situs-togel-online1.pages.dev./" rel="nofollow noopener" target="_blank" class="tada">
+    <a href="https://situs-togel-online1.pages.dev/" rel="nofollow noopener" target="_blank" class="tada">
         <img layout="intrinsic" height="20px" width="20px" src="https://blogger.googleusercontent.com/img/a/AVvXsEg4N-LE56s3VxaB6uSZsdglQZYMLReJ8B1nycqxB_Jq_FvzRw2sg0_B6snjBjvS1ZxOCF6a_5jD8vXeWD9P0FwtbnbZhcCiF7wBuqI8rndWulcwtdUztsfxdk7eznNWh2_og6A2U9AQK7DfdYTQeB6iahvjjM7-FUTL-cSn6-U0azPuX1g7_zXy7XOCHjJ8" alt="KOKITOTO Promo">
         PROMO
     </a>
-    <a href="https://situs-togel-online1.pages.dev./" rel="nofollow noopener" target="_blank" class="tada">
+    <a href="https://situs-togel-online1.pages.dev/" rel="nofollow noopener" target="_blank" class="tada">
         <img layout="intrinsic" height="20px" width="20px" src="https://blogger.googleusercontent.com/img/a/AVvXsEg4N-LE56s3VxaB6uSZsdglQZYMLReJ8B1nycqxB_Jq_FvzRw2sg0_B6snjBjvS1ZxOCF6a_5jD8vXeWD9P0FwtbnbZhcCiF7wBuqI8rndWulcwtdUztsfxdk7eznNWh2_og6A2U9AQK7DfdYTQeB6iahvjjM7-FUTL-cSn6-U0azPuX1g7_zXy7XOCHjJ8" alt="KOKITOTO Login">
         LOGIN
     </a>
-    <a href="https://situs-togel-online1.pages.dev./" rel="nofollow noopener" target="_blank" class="tada">
+    <a href="https://situs-togel-online1.pages.dev/" rel="nofollow noopener" target="_blank" class="tada">
         <img layout="intrinsic" height="20px" width="20px" src="https://blogger.googleusercontent.com/img/a/AVvXsEg4N-LE56s3VxaB6uSZsdglQZYMLReJ8B1nycqxB_Jq_FvzRw2sg0_B6snjBjvS1ZxOCF6a_5jD8vXeWD9P0FwtbnbZhcCiF7wBuqI8rndWulcwtdUztsfxdk7eznNWh2_og6A2U9AQK7DfdYTQeB6iahvjjM7-FUTL-cSn6-U0azPuX1g7_zXy7XOCHjJ8" alt="KOKITOTO Daftar">
         DAFTAR
     </a>
-    <a href="https://situs-togel-online1.pages.dev./" rel="nofollow noopener" target="_blank" class="tada">
+    <a href="https://situs-togel-online1.pages.dev/" rel="nofollow noopener" target="_blank" class="tada">
         <img layout="intrinsic" height="20px" width="20px" src="https://blogger.googleusercontent.com/img/a/AVvXsEg4N-LE56s3VxaB6uSZsdglQZYMLReJ8B1nycqxB_Jq_FvzRw2sg0_B6snjBjvS1ZxOCF6a_5jD8vXeWD9P0FwtbnbZhcCiF7wBuqI8rndWulcwtdUztsfxdk7eznNWh2_og6A2U9AQK7DfdYTQeB6iahvjjM7-FUTL-cSn6-U0azPuX1g7_zXy7XOCHjJ8" alt="TOTO TOGEL">
         ALTERNATIF
     </a>
-    <a href="https://situs-togel-online1.pages.dev./" rel="nofollow noopener" target="_blank" class="tada">
+    <a href="https://situs-togel-online1.pages.dev/" rel="nofollow noopener" target="_blank" class="tada">
         <img class="live-chat-icon" layout="intrinsic" height="20px" width="20px" src="https://blogger.googleusercontent.com/img/a/AVvXsEg4N-LE56s3VxaB6uSZsdglQZYMLReJ8B1nycqxB_Jq_FvzRw2sg0_B6snjBjvS1ZxOCF6a_5jD8vXeWD9P0FwtbnbZhcCiF7wBuqI8rndWulcwtdUztsfxdk7eznNWh2_og6A2U9AQK7DfdYTQeB6iahvjjM7-FUTL-cSn6-U0azPuX1g7_zXy7XOCHjJ8"alt="KOKITOTO LiveChat">
         LIVE CHAT
     </a>
