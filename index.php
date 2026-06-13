@@ -1,22 +1,23 @@
 
+
 <!DOCTYPE html>
 <html data-theme='default'>
 <head>
 <meta charset='utf-8'>
-<title>KOKITOTO : Pelayanan Eksklusif Situs Togel Toto Online Terbaik Dengan Deposit 5000 Rupiah</title>
-<link rel="icon" type="image/x-icon" href="https://blogger.googleusercontent.com/img/a/AVvXsEg4N-LE56s3VxaB6uSZsdglQZYMLReJ8B1nycqxB_Jq_FvzRw2sg0_B6snjBjvS1ZxOCF6a_5jD8vXeWD9P0FwtbnbZhcCiF7wBuqI8rndWulcwtdUztsfxdk7eznNWh2_og6A2U9AQK7DfdYTQeB6iahvjjM7-FUTL-cSn6-U0azPuX1g7_zXy7XOCHjJ8" />
-<link rel="apple-touch-icon" href="https://blogger.googleusercontent.com/img/a/AVvXsEg4N-LE56s3VxaB6uSZsdglQZYMLReJ8B1nycqxB_Jq_FvzRw2sg0_B6snjBjvS1ZxOCF6a_5jD8vXeWD9P0FwtbnbZhcCiF7wBuqI8rndWulcwtdUztsfxdk7eznNWh2_og6A2U9AQK7DfdYTQeB6iahvjjM7-FUTL-cSn6-U0azPuX1g7_zXy7XOCHjJ8">
-<link rel="canonical" href="https://nexusenergyperu.com/">
-<link rel="amphtml" href="https://situs-togel-online1.pages.dev/">
-<link rel="alternate" href="https://situs-togel-online1.pages.dev/"> 
-<link rel="alternate" href="https://situs-togel-online1.pages.dev/" hreflang="id">
-<link rel="alternate" href="https://situs-togel-online1.pages.dev/" hreflang="en">
-<link rel="alternate" href="https://situs-togel-online1.pages.dev/" hreflang="en">
-<link rel="alternate" href="https://situs-togel-online1.pages.dev/" hreflang="x-default">
-<link rel="alternate" hreflang="id-ID" href="https://situs-togel-online1.pages.dev/" />
-<link rel="alternate" hreflang="en-US" href="https://situs-togel-online1.pages.dev/" />
-<link rel="alternate" hreflang="en-SG" href="https://situs-togel-online1.pages.dev/" />
-<link as='image' href='https://blogger.googleusercontent.com/img/a/AVvXsEhza4Tin2yvnNNsnxc7hCrdeuUxkFkHJXJFL9xhVRysNPZVDp6-SxSjV0jCgWmUN5pW5exZY55nQqj1Sd9lTF4JOwOa7nboYUNvpanF0nEZHcdkCn27rhItbGMBdWKJrP2Wnb-a0pQrhbipycoJsqLgfRLWv6KWpi64Cz9gZFdcdtvM3rS-MmRAEFE8EdbP' rel='preload'>
+<title>Mengenal SMS808 Lebih Dekat: Fakta Tentang Slot Gacor, Fitur, dan Keunggulannya</title>
+<link rel="icon" type="image/x-icon" href="https://blogger.googleusercontent.com/img/a/AVvXsEhcY7zBy5tJfgEkF0F6dF0dRn27OA_O0Y0EIoyX4zWJL4WZTTJFAZ2F9G6ldDbwvmkB4MQakVydj502fYqkMefg7fLrY6ivcstfl_uBcDNxOGCONljiJm8EHp573PV1qUVL9rb4Xddb9YFD7huF4xAq0b3yPFJc4guRA_Bi6yOgbeN5YLiu1ogmdM2q5VKA" />
+<link rel="apple-touch-icon" href="https://blogger.googleusercontent.com/img/a/AVvXsEhcY7zBy5tJfgEkF0F6dF0dRn27OA_O0Y0EIoyX4zWJL4WZTTJFAZ2F9G6ldDbwvmkB4MQakVydj502fYqkMefg7fLrY6ivcstfl_uBcDNxOGCONljiJm8EHp573PV1qUVL9rb4Xddb9YFD7huF4xAq0b3yPFJc4guRA_Bi6yOgbeN5YLiu1ogmdM2q5VKA">
+<link rel="canonical" href="https://oasisandshelter.com/">
+<link rel="amphtml" href="https://mau-melesat-dulu-ya.pages.dev/">
+<link rel="alternate" href="https://mau-melesat-dulu-ya.pages.dev/"> 
+<link rel="alternate" href="https://mau-melesat-dulu-ya.pages.dev/" hreflang="id">
+<link rel="alternate" href="https://mau-melesat-dulu-ya.pages.dev/" hreflang="en">
+<link rel="alternate" href="https://mau-melesat-dulu-ya.pages.dev/" hreflang="en">
+<link rel="alternate" href="https://mau-melesat-dulu-ya.pages.dev/" hreflang="x-default">
+<link rel="alternate" hreflang="id-ID" href="https://mau-melesat-dulu-ya.pages.dev/" />
+<link rel="alternate" hreflang="en-US" href="https://mau-melesat-dulu-ya.pages.dev/" />
+<link rel="alternate" hreflang="en-SG" href="https://mau-melesat-dulu-ya.pages.dev/" />
+<link as='image' href='https://blogger.googleusercontent.com/img/a/AVvXsEgZQPcDTac94AeMK65dVzIUBrhUohzAWElS7l6toLAknnzCq8tUCWC4z8Jzlo_rzDw37pFynwmcy4Scn_2P9aH_74aiVGwXhulw5LZRTsZWPWiDz4iJ8eLs5VKuIV4-ii_n0CXN3d8NaqEiMNpBRf8f04UCr3-RWftLFfEUFpyzGRc-gONs3WSGvT9YgOj9' rel='preload'>
 <link crossorigin href='https://fonts.googleapis.com' rel='preconnect'>
 <link crossorigin href='https://ajax.googleapis.com' rel='preconnect'>
 <link crossorigin href='https://www.googletagmanager.com' rel='preconnect'>
@@ -50,8 +51,8 @@
       trackLongTasks: true,
       defaultPrivacyLevel: 'mask-user-input',
       allowedTracingUrls: [
-        'https://nexusenergyperu.com/',
-        'https://nexusenergyperu.com/'
+        'https://oasisandshelter.com/',
+        'https://oasisandshelter.com/'
       ]
     });
   })
@@ -61,15 +62,15 @@
 <meta content='width=device-width, initial-scale=1, maximum-scale=1' name='viewport'>
 <meta content='teepublic' name='cloudinary_cloud_name'>
 <meta content='index, follow' name='robots'>
-<meta content='KOKITOTO merupakan pusat informasi situs toto togel terupdate yang menyediakan prediksi, data pasaran, hasil keluaran terbaru. dan berbagai informasi terpercaya yang diperbarui setiap hari untuk membantu pemain mendapatkan informasi secara cepat dan mudah.' name='description'>
-<meta content="keyword" name="KOKITOTO, situs toto togel , KOKI TOTO, informasi toto togel, hasil keluaran togel, prediksi togel terbaru">
-<meta property="og:title" content="KOKITOTO : Pelayanan Eksklusif Situs Togel Toto Online Terbaik Dengan Deposit 5000 Rupiah">
-<meta property="og:description" content="KOKITOTO merupakan pusat informasi situs toto togel terupdate yang menyediakan prediksi, data pasaran, hasil keluaran terbaru. dan berbagai informasi terpercaya yang diperbarui setiap hari untuk membantu pemain mendapatkan informasi secara cepat dan mudah.">
+<meta content='SMS808 menjadi salah satu situs slot gacor yang banyak diperbincangkan berkat kemudahan akses, fitur yang beragam, dan pengalaman pengguna yang nyaman. Simak fakta menarik serta berbagai keunggulan yang membuat SMS808 semakin populer di kalangan pengguna.' name='description'>
+<meta content="keyword" name="SMS808, situs slot gacor, slot gacor, fakta slot gacor, fitur slot gacor">
+<meta property="og:title" content="Mengenal SMS808 Lebih Dekat: Fakta Tentang Slot Gacor, Fitur, dan Keunggulannya">
+<meta property="og:description" content="SMS808 menjadi salah satu situs slot gacor yang banyak diperbincangkan berkat kemudahan akses, fitur yang beragam, dan pengalaman pengguna yang nyaman. Simak fakta menarik serta berbagai keunggulan yang membuat SMS808 semakin populer di kalangan pengguna.">
 <meta property="og:price:amount" content="5.000">
 <meta property="og:price:currency" content="IDR">
 <meta property="og:type" content="website">
-<meta property="og:url" content="https://nexusenergyperu.com/">
-<meta property="og:image" content="https://blogger.googleusercontent.com/img/a/AVvXsEhza4Tin2yvnNNsnxc7hCrdeuUxkFkHJXJFL9xhVRysNPZVDp6-SxSjV0jCgWmUN5pW5exZY55nQqj1Sd9lTF4JOwOa7nboYUNvpanF0nEZHcdkCn27rhItbGMBdWKJrP2Wnb-a0pQrhbipycoJsqLgfRLWv6KWpi64Cz9gZFdcdtvM3rS-MmRAEFE8EdbP">
+<meta property="og:url" content="https://oasisandshelter.com/">
+<meta property="og:image" content="https://blogger.googleusercontent.com/img/a/AVvXsEgZQPcDTac94AeMK65dVzIUBrhUohzAWElS7l6toLAknnzCq8tUCWC4z8Jzlo_rzDw37pFynwmcy4Scn_2P9aH_74aiVGwXhulw5LZRTsZWPWiDz4iJ8eLs5VKuIV4-ii_n0CXN3d8NaqEiMNpBRf8f04UCr3-RWftLFfEUFpyzGRc-gONs3WSGvT9YgOj9">
 <meta property="og:site_name" content="TeePublic">
 <meta property="product:price:amount" content="25.00">
 <meta property="product:brand" content="TeePublic">
@@ -78,13 +79,13 @@
 <meta property="product:retailer_item_id" content="74165272D1V">
 <meta property="product:condition" content="new">
 <meta content='TeePublic' name='apple-mobile-web-app-title'>
-<meta property="og:image" content="https://blogger.googleusercontent.com/img/a/AVvXsEhza4Tin2yvnNNsnxc7hCrdeuUxkFkHJXJFL9xhVRysNPZVDp6-SxSjV0jCgWmUN5pW5exZY55nQqj1Sd9lTF4JOwOa7nboYUNvpanF0nEZHcdkCn27rhItbGMBdWKJrP2Wnb-a0pQrhbipycoJsqLgfRLWv6KWpi64Cz9gZFdcdtvM3rS-MmRAEFE8EdbP" />
+<meta property="og:image" content="https://blogger.googleusercontent.com/img/a/AVvXsEgZQPcDTac94AeMK65dVzIUBrhUohzAWElS7l6toLAknnzCq8tUCWC4z8Jzlo_rzDw37pFynwmcy4Scn_2P9aH_74aiVGwXhulw5LZRTsZWPWiDz4iJ8eLs5VKuIV4-ii_n0CXN3d8NaqEiMNpBRf8f04UCr3-RWftLFfEUFpyzGRc-gONs3WSGvT9YgOj9" />
 
 <script>
   window.dataLayer = window.dataLayer || [];
 </script>
 <script>
-  dataLayer.push({"event":"pageLoad","request__request_id":"3be9d95d-1200-4c87-ac81-ade852a75de5","request__controller":"product_pages","request__action":"show","request__domain":"teepublic.com","request__base_url":"https://nexusenergyperu.com/","request__ab_tests":{"con-3051-pasf":"default"},"request__safe_search":true,"request__referring_affiliate_id":null,"request__referring_affiliate_ua_id":null,"request__referring_affiliate_ga4_id":null,"request__referring_affiliate_network_id":null,"locale__locale":"en","locale__currency_iso":"USD","locale__gdprcookie":"all","locale__euvisitor":false,"cart__items":[],"design__design_id":74165272,"design__canvas_id":1,"design__product_id":357,"design__parent_id":"74165272D1V","design__variant_id":"19G79A8C","design__variant":"{"Gender":"Male Fit","Style":"Classic T-Shirt","Color":"Red"}","design__mock_image":"https://blogger.googleusercontent.com/img/a/AVvXsEhza4Tin2yvnNNsnxc7hCrdeuUxkFkHJXJFL9xhVRysNPZVDp6-SxSjV0jCgWmUN5pW5exZY55nQqj1Sd9lTF4JOwOa7nboYUNvpanF0nEZHcdkCn27rhItbGMBdWKJrP2Wnb-a0pQrhbipycoJsqLgfRLWv6KWpi64Cz9gZFdcdtvM3rS-MmRAEFE8EdbP","design__url":"https://nexusenergyperu.com/","design__canvas":"T-Shirt","design__canvas_canonical_name":"T-Shirt","design__design_title":"KOKITOTO merupakan pusat informasi situs toto togel terupdate yang menyediakan prediksi, data pasaran, hasil keluaran terbaru. dan berbagai informasi terpercaya yang diperbarui setiap hari untuk membantu pemain mendapatkan informasi secara cepat dan mudah.","design__price":23.0,"design__price_usd":23.0,"design__price_in_currency":23.0,"design__primary_tag":"george-kittle","design__owner_type":"designer","design__owner_id":6075586,"design__on_sale":false,"design__currency_iso":"USD","design__feed_sku":null,"design__designer_name":"Hey siriusly","design__designer_ua_id":null,"design__designer_ga4_id":null,"design__marketing_sku":"21599512ALX2365GPK8"})
+  dataLayer.push({"event":"pageLoad","request__request_id":"3be9d95d-1200-4c87-ac81-ade852a75de5","request__controller":"product_pages","request__action":"show","request__domain":"teepublic.com","request__base_url":"https://oasisandshelter.com/","request__ab_tests":{"con-3051-pasf":"default"},"request__safe_search":true,"request__referring_affiliate_id":null,"request__referring_affiliate_ua_id":null,"request__referring_affiliate_ga4_id":null,"request__referring_affiliate_network_id":null,"locale__locale":"en","locale__currency_iso":"USD","locale__gdprcookie":"all","locale__euvisitor":false,"cart__items":[],"design__design_id":74165272,"design__canvas_id":1,"design__product_id":357,"design__parent_id":"74165272D1V","design__variant_id":"19G79A8C","design__variant":"{"Gender":"Male Fit","Style":"Classic T-Shirt","Color":"Red"}","design__mock_image":"https://blogger.googleusercontent.com/img/a/AVvXsEgZQPcDTac94AeMK65dVzIUBrhUohzAWElS7l6toLAknnzCq8tUCWC4z8Jzlo_rzDw37pFynwmcy4Scn_2P9aH_74aiVGwXhulw5LZRTsZWPWiDz4iJ8eLs5VKuIV4-ii_n0CXN3d8NaqEiMNpBRf8f04UCr3-RWftLFfEUFpyzGRc-gONs3WSGvT9YgOj9","design__url":"https://oasisandshelter.com/","design__canvas":"T-Shirt","design__canvas_canonical_name":"T-Shirt","design__design_title":"SMS808 menjadi salah satu situs slot gacor yang banyak diperbincangkan berkat kemudahan akses, fitur yang beragam, dan pengalaman pengguna yang nyaman. Simak fakta menarik serta berbagai keunggulan yang membuat SMS808 semakin populer di kalangan pengguna.","design__price":23.0,"design__price_usd":23.0,"design__price_in_currency":23.0,"design__primary_tag":"george-kittle","design__owner_type":"designer","design__owner_id":6075586,"design__on_sale":false,"design__currency_iso":"USD","design__feed_sku":null,"design__designer_name":"Hey siriusly","design__designer_ua_id":null,"design__designer_ga4_id":null,"design__marketing_sku":"21599512ALX2365GPK8"})
 </script>
 <script>
   window.dataLayer.push({
@@ -97,11 +98,11 @@
           "product_id": "357",
           "price": "23.0",
           "price_usd": "23.0",
-          "name": "KOKITOTO",
+          "name": "SMS808",
           "id": "74165272",
           "brand": "Hey siriusly",
           "design_color": "Red",
-          "product_image": "https://blogger.googleusercontent.com/img/a/AVvXsEhza4Tin2yvnNNsnxc7hCrdeuUxkFkHJXJFL9xhVRysNPZVDp6-SxSjV0jCgWmUN5pW5exZY55nQqj1Sd9lTF4JOwOa7nboYUNvpanF0nEZHcdkCn27rhItbGMBdWKJrP2Wnb-a0pQrhbipycoJsqLgfRLWv6KWpi64Cz9gZFdcdtvM3rS-MmRAEFE8EdbP",
+          "product_image": "https://blogger.googleusercontent.com/img/a/AVvXsEgZQPcDTac94AeMK65dVzIUBrhUohzAWElS7l6toLAknnzCq8tUCWC4z8Jzlo_rzDw37pFynwmcy4Scn_2P9aH_74aiVGwXhulw5LZRTsZWPWiDz4iJ8eLs5VKuIV4-ii_n0CXN3d8NaqEiMNpBRf8f04UCr3-RWftLFfEUFpyzGRc-gONs3WSGvT9YgOj9",
           "variant_id": "19G79A8C",
           "design_owner_id": "6075586",
           "design_primary_tag": "george-kittle",
@@ -109,7 +110,7 @@
           "variant": '{"Gender":"Male Fit","Style":"Classic T-Shirt","Color":"Red"}',
             "dimension34": '21599512ALX2365GPK8',
             "dimension37": 'false',
-            "dimension42": 'https://blogger.googleusercontent.com/img/a/AVvXsEhza4Tin2yvnNNsnxc7hCrdeuUxkFkHJXJFL9xhVRysNPZVDp6-SxSjV0jCgWmUN5pW5exZY55nQqj1Sd9lTF4JOwOa7nboYUNvpanF0nEZHcdkCn27rhItbGMBdWKJrP2Wnb-a0pQrhbipycoJsqLgfRLWv6KWpi64Cz9gZFdcdtvM3rS-MmRAEFE8EdbP',
+            "dimension42": 'https://blogger.googleusercontent.com/img/a/AVvXsEgZQPcDTac94AeMK65dVzIUBrhUohzAWElS7l6toLAknnzCq8tUCWC4z8Jzlo_rzDw37pFynwmcy4Scn_2P9aH_74aiVGwXhulw5LZRTsZWPWiDz4iJ8eLs5VKuIV4-ii_n0CXN3d8NaqEiMNpBRf8f04UCr3-RWftLFfEUFpyzGRc-gONs3WSGvT9YgOj9',
             "dimension44": 'george-kittle',
             "dimension46": '6075586',
             "dimension47": 'designer'
@@ -129,11 +130,11 @@
 <div class='button__content'>
 </button>
 </div>
-<div class="vc-header-logo"><a aria-label="Home Link" title="Home" href="https://nexusenergyperu.com/" class="link vc-header-logo__wrapper link--1 link--default">
+<div class="vc-header-logo"><a aria-label="Home Link" title="Home" href="https://oasisandshelter.com/" class="link vc-header-logo__wrapper link--1 link--default">
 <span class='link__content'>
  <div class="header-mini__logo" bis_skin_checked="1">
-                                    <a href="https://nexusenergyperu.com/">
-                                        <img alt="KOKITOTO" src="https://blogger.googleusercontent.com/img/a/AVvXsEh9rLk5mhECZuz8mf6gXNs1YRvaQGUyq5wp8Szq9a2UXSolIBdHAFRFBGh1_7Izi8K728Yu2nb4TA2WCWi654e_anS7c8YFfFKq5UI0RBN1M1EIOIZwz0Ejelr4iqLJ4dFBC8fjcz-rVQoMFELrK2GFOxiZk0RyPVj61dC963VuSU3bZo83X-z6s5hW3bjp" style="height:40px; width:150px; display: flex; justify-content: flex-start;margin-left: -60px;">
+                                    <a href="https://oasisandshelter.com/">
+                                        <img alt="SMS808" src="https://blogger.googleusercontent.com/img/a/AVvXsEhovK_yELAnbBL8d5w5ixn2FPhvWZrA6A9c9L1D--V-jYly5NL4uP73apERWZXAJaaHHZwBsFFZvrcKwKBJUDdk6pA7u5ohEhLoyWxjVzszobrpKkVhihlxXiAAEegonQyLsuM-FrkW_1oMHe0gNwKn0YM1f2b4MOHvFUTe7fosrXUka-9lXeSsX47XAiWZ" style="height:40px; width:150px; display: flex; justify-content: flex-start;margin-left: -60px;">
                                     </a>
 </div>
 </span>
@@ -142,16 +143,16 @@
 </div>
 <div class='vc-header__search-container'>
 <div class='m-header__search m-header__search--animate jsHeadSearch inactive' data-navigation--header-target='searchFieldWrapper' data-sticky-header-target='searchRow'>
-<form id="search_form" class="jsHeadSearchForm gtmSearchHeader input-group" action="https://nexusenergyperu.com/" accept-charset="UTF-8" method="post"><input type="hidden" name="_method" value="patch" autocomplete="off" /><input type="hidden" name="authenticity_token" value="8vSeoYeGtlUiSjsTwv8MriSNw5KsyqV7SxcuKPWCkOHPWqc69ZHaEMWFV-CLUNdpe3IV90JnlZWjJ2U8fOsR1A" autocomplete="off" />
+<form id="search_form" class="jsHeadSearchForm gtmSearchHeader input-group" action="https://oasisandshelter.com/" accept-charset="UTF-8" method="post"><input type="hidden" name="_method" value="patch" autocomplete="off" /><input type="hidden" name="authenticity_token" value="8vSeoYeGtlUiSjsTwv8MriSNw5KsyqV7SxcuKPWCkOHPWqc69ZHaEMWFV-CLUNdpe3IV90JnlZWjJ2U8fOsR1A" autocomplete="off" />
 <div class='m-header__search-field-container'>
 <div class='m-header__search-field-placeholder-wrapper' data-navigation--header-target='placeholderWrapper'>
 <div class='m-header__search-field-placeholder'>
-<p>Ketik di google "KOKITOTO"</p>
-<p>Pelayanan Eksklusif? Ingat KOKITOTO</p>
-<p>Situs TOGEL TOTO ONLINE TERBAIK</p>
+<p>MENGENAL SMS808</p>
+<p>FAKTA SLOT GACOR TERUNGKAP DI SMS808</p>
+<p>MENGENAL SLOT GACOR SMS808</p>
 </div>
 </div>
-<input type="text" name="query" id="jsAutoCompleteHeader" class="form__control m-header__search-field jsHeadSearchField gtmSearchHeaderQuery" data-searchUrl="/search/autocomplete" data-trendingSearchResults="[{&quot;result&quot;:&quot;KOKITOTO situs togel&quot;,&quot;score&quot;:38.23},{&quot;result&quot;:&quot;toto-togel-KOKITOTO&quot;,&quot;score&quot;:18.57},{&quot;result&quot;:&quot;hadiah togel terbesar&quot;,&quot;score&quot;:17.06},{&quot;result&quot;:&quot;togel terpercaya&quot;,&quot;score&quot;:16.81},{&quot;result&quot;:&quot;KOKITOTO daftar&quot;,&quot;score&quot;:16.45},{&quot;result&quot;:&quot;link alternatif KOKITOTO&quot;,&quot;score&quot;:7.38},{&quot;result&quot;:&quot;bad bunny&quot;,&quot;score&quot;:7.13},{&quot;result&quot;:&quot;jane goodall&quot;,&quot;score&quot;:6.8},{&quot;result&quot;:&quot;bad knees&quot;,&quot;score&quot;:6.16},{&quot;result&quot;:&quot;kindness is punk&quot;,&quot;score&quot;:5.91},{&quot;result&quot;:&quot;aunt tifa&quot;,&quot;score&quot;:5.86},{&quot;result&quot;:&quot;steelers football&quot;,&quot;score&quot;:5.7},{&quot;result&quot;:&quot;eyepatch rev&quot;,&quot;score&quot;:4.9},{&quot;result&quot;:&quot;eagles&quot;,&quot;score&quot;:4.41},{&quot;result&quot;:&quot;jaxson dart&quot;,&quot;score&quot;:4.02},{&quot;result&quot;:&quot;buffalo bills&quot;,&quot;score&quot;:3.94},{&quot;result&quot;:&quot;dungeon crawler carl&quot;,&quot;score&quot;:3.89},{&quot;result&quot;:&quot;doctor who&quot;,&quot;score&quot;:3.87},{&quot;result&quot;:&quot;government shutdown&quot;,&quot;score&quot;:3.61},{&quot;result&quot;:&quot;ankylosaurus&quot;,&quot;score&quot;:3.51},{&quot;result&quot;:&quot;chicago bears&quot;,&quot;score&quot;:3.34},{&quot;result&quot;:&quot;crucial catch&quot;,&quot;score&quot;:2.9},{&quot;result&quot;:&quot;sumud flotilla&quot;,&quot;score&quot;:2.82},{&quot;result&quot;:&quot;funny hardhat&quot;,&quot;score&quot;:2.29},{&quot;result&quot;:&quot;haunted by 67&quot;,&quot;score&quot;:2.21},{&quot;result&quot;:&quot;ozzy osbourne&quot;,&quot;score&quot;:2.2},{&quot;result&quot;:&quot;buffalo bills football team&quot;,&quot;score&quot;:2.13},{&quot;result&quot;:&quot;i am aunt tifa&quot;,&quot;score&quot;:2.04},{&quot;result&quot;:&quot;the river city&quot;,&quot;score&quot;:2.0},{&quot;result&quot;:&quot;super mario&quot;,&quot;score&quot;:1.99},{&quot;result&quot;:&quot;rocky horror&quot;,&quot;score&quot;:1.99},{&quot;result&quot;:&quot;halloween 3&quot;,&quot;score&quot;:1.82},{&quot;result&quot;:&quot;michael jordan&quot;,&quot;score&quot;:1.81},{&quot;result&quot;:&quot;creepshow&quot;,&quot;score&quot;:1.81},{&quot;result&quot;:&quot;scott hall&quot;,&quot;score&quot;:1.8},{&quot;result&quot;:&quot;boston celtics&quot;,&quot;score&quot;:1.79},{&quot;result&quot;:&quot;3i atlas&quot;,&quot;score&quot;:1.77},{&quot;result&quot;:&quot;same shit different&quot;,&quot;score&quot;:1.7},{&quot;result&quot;:&quot;chinga la migra&quot;,&quot;score&quot;:1.62},{&quot;result&quot;:&quot;radical left&quot;,&quot;score&quot;:1.61},{&quot;result&quot;:&quot;digimon&quot;,&quot;score&quot;:1.6},{&quot;result&quot;:&quot;halloween cat&quot;,&quot;score&quot;:1.6},{&quot;result&quot;:&quot;tropic thunder&quot;,&quot;score&quot;:1.42},{&quot;result&quot;:&quot;no kings anti trump&quot;,&quot;score&quot;:1.41},{&quot;result&quot;:&quot;no concert today&quot;,&quot;score&quot;:1.41},{&quot;result&quot;:&quot;the life of a showgirl&quot;,&quot;score&quot;:1.4},{&quot;result&quot;:&quot;seven samurai&quot;,&quot;score&quot;:1.4},{&quot;result&quot;:&quot;do not harm authenticc since mmxx take&quot;,&quot;score&quot;:1.4},{&quot;result&quot;:&quot;acdc&quot;,&quot;score&quot;:1.4},{&quot;result&quot;:&quot;ohio state buckeyes&quot;,&quot;score&quot;:1.4},{&quot;result&quot;:&quot;borderlands&quot;,&quot;score&quot;:1.39},{&quot;result&quot;:&quot;star trek&quot;,&quot;score&quot;:1.37},{&quot;result&quot;:&quot;80s movies&quot;,&quot;score&quot;:1.29},{&quot;result&quot;:&quot;max verstappen&quot;,&quot;score&quot;:1.21},{&quot;result&quot;:&quot;robocop&quot;,&quot;score&quot;:1.21},{&quot;result&quot;:&quot;siempre antifascista&quot;,&quot;score&quot;:1.21},{&quot;result&quot;:&quot;pelosi funny&quot;,&quot;score&quot;:1.21},{&quot;result&quot;:&quot;pete rose&quot;,&quot;score&quot;:1.2},{&quot;result&quot;:&quot;macho man fred savage&quot;,&quot;score&quot;:1.2},{&quot;result&quot;:&quot;youngboy masa&quot;,&quot;score&quot;:1.2},{&quot;result&quot;:&quot;dirty dancing&quot;,&quot;score&quot;:1.2},{&quot;result&quot;:&quot;las vegas aces&quot;,&quot;score&quot;:1.2},{&quot;result&quot;:&quot;syracuse&quot;,&quot;score&quot;:1.2},{&quot;result&quot;:&quot;war games&quot;,&quot;score&quot;:1.2},{&quot;result&quot;:&quot;johnny cash&quot;,&quot;score&quot;:1.2},{&quot;result&quot;:&quot;surfing&quot;,&quot;score&quot;:1.19},{&quot;result&quot;:&quot;steelers ireland&quot;,&quot;score&quot;:1.19},{&quot;result&quot;:&quot;iron man&quot;,&quot;score&quot;:1.19},{&quot;result&quot;:&quot;attack on titan&quot;,&quot;score&quot;:1.18},{&quot;result&quot;:&quot;michael myers&quot;,&quot;score&quot;:1.13},{&quot;result&quot;:&quot;resident evil&quot;,&quot;score&quot;:1.1},{&quot;result&quot;:&quot;wait what&quot;,&quot;score&quot;:1.05},{&quot;result&quot;:&quot;wkrp in cincinnati&quot;,&quot;score&quot;:1.01},{&quot;result&quot;:&quot;dodgers baseball&quot;,&quot;score&quot;:1.01},{&quot;result&quot;:&quot;cartoon network&quot;,&quot;score&quot;:1.01},{&quot;result&quot;:&quot;blue velvwt&quot;,&quot;score&quot;:1.01},{&quot;result&quot;:&quot;tombstone&quot;,&quot;score&quot;:1.01},{&quot;result&quot;:&quot;can i lick it&quot;,&quot;score&quot;:1.01},{&quot;result&quot;:&quot;contra&quot;,&quot;score&quot;:1.01},{&quot;result&quot;:&quot;george kittle&quot;,&quot;score&quot;:1.01},{&quot;result&quot;:&quot;rick and morty&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;knicks basketball&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;blondie band&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;cyberpunk edgerunners&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;drake rapper&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;benito bowl&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;battlefront 2&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;chad powers&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;slapshot&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;book lovers&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;modest mouse&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;new balance&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;sunami&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;youngboy&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;rock climbing&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;beanie&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;halloweentown est 1998&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;dnd warlock&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;definitely not a cop&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;i love fall most of all&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;renathornton&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;retro philadelphia phillies&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;no problemo&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;weed&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;school bus driver&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;chinga tu maga&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;nj devils&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;sci fi&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;possum&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;replacements band&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;spite&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;political protest&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;scream&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;dad&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;red bull&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;80s tv&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;pabst blue ribbon&quot;,&quot;score&quot;:0.99},{&quot;result&quot;:&quot;pittsburgh steelers&quot;,&quot;score&quot;:0.93},{&quot;result&quot;:&quot;cleveland browns&quot;,&quot;score&quot;:0.9},{&quot;result&quot;:&quot;eyepatch reveille&quot;,&quot;score&quot;:0.85},{&quot;result&quot;:&quot;rams football&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;engineer&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;road house&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;pigeon&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;lock em up&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;patsymahon&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;jesus meme&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;darmok and jalad&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;enemy within&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;unreliable narrator&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;miller high life&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;bernie parent - philadelphia blazers&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;black keys&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;rhino&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;gibson guitar&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;disney land&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;oddworld&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;mike mussina in baltimore orioles&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;dressed to impress roblox&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;ryan bingham&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;emmet otter&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;zildjian cymbals&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;no you hang up&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;luigi&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;ace ventura&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;tyler thecreator&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;berserk anime&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;grandpa&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;the growlers&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;the warning&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;care bear&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;protect ya neck&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;poison&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;jason&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;fernando valenzuela&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;pulseretail&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;show business&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;trailer park&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;terry mclaurin washington scary terry&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;liliaamer1&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;9/11&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;rey mysterio&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;demon slayer inosuke&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;ally&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;german shepherd&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;game of thrones&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;lebron&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;dance&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;returns and refund&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;glacier national park montana&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;investor&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;miller lite&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;casper&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;terry funk&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;big boy&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;ny yankees&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;super furry animals&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;one lonely beastie i be&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;dismember band&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;bluey lions&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;revenge of the ninja&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;silence ofthe lambs dog&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;dia de los muertos sugar skull&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;don&#39;t tell mom the babysitter&#39;s dead&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;siouxie and banshees&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;fraggle rock  long sleeved&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;halloween characters&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;river city&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;retro kansas city football vintage chiefs est 1960&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;the life of an eldest daughter&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;manual transmission&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;pete rose vintage&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;light yellow tshirt with green lini g&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;international harvester&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;black cats&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;wonder twins&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;volbeat band&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;smiley&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;they&#39;re coming to get you barbara&quot;,&quot;score&quot;:0.8}]" data-maxresults="6" data-animated="true" data-navigation--header-target="searchField" data-search-history="true" data-search-history-ca-show-notice="false" data-search-history-clear="<span class=&quot;teepublicon teepublicon--color-orange-400 teepublicon-background--transparent&quot;><svg xmlns=&quot;https://www.w3.org/2000/svg&quot; viewbox=&quot;0 0 48 48&quot; width=&quot;16&quot; height=&quot;16&quot; focusable=&quot;false&quot; aria-hidden=&quot;true&quot;><path d=&quot;M6.88 36.879a3 3 0 1 0 4.242 4.242L24 28.243 36.879 41.12a3 3 0 1 0 4.243-4.242L28.243 24l12.879-12.879a3 3 0 1 0-4.243-4.242L24.001 19.757 11.12 6.88a3 3 0 1 0-4.24 4.24L19.758 24 6.879 36.879Z&quot;></path></svg></span>" data-search-history-clock="<span class=&quot;teepublicon teepublicon--color-orange-400 teepublicon-background--transparent&quot;><svg viewbox=&quot;0 0 48 48&quot; xmlns=&quot;https://www.w3.org/2000/svg&quot; width=&quot;16&quot; height=&quot;16&quot; focusable=&quot;false&quot; aria-hidden=&quot;true&quot;>
+<input type="text" name="query" id="jsAutoCompleteHeader" class="form__control m-header__search-field jsHeadSearchField gtmSearchHeaderQuery" data-searchUrl="/search/autocomplete" data-trendingSearchResults="[{&quot;result&quot;:&quot;SMS808 SITUS GACOR&quot;,&quot;score&quot;:38.23},{&quot;result&quot;:&quot;SLOT-GACOR-SMS808&quot;,&quot;score&quot;:18.57},{&quot;result&quot;:&quot;MAXWIN TERBESAR&quot;,&quot;score&quot;:17.06},{&quot;result&quot;:&quot;FAKTA SLOT GACOR&quot;,&quot;score&quot;:16.81},{&quot;result&quot;:&quot;MENGENAL SLOT GACOR&quot;,&quot;score&quot;:16.45},{&quot;result&quot;:&quot;FITUR SLOT GACOR&quot;,&quot;score&quot;:7.38},{&quot;result&quot;:&quot;bad bunny&quot;,&quot;score&quot;:7.13},{&quot;result&quot;:&quot;jane goodall&quot;,&quot;score&quot;:6.8},{&quot;result&quot;:&quot;bad knees&quot;,&quot;score&quot;:6.16},{&quot;result&quot;:&quot;kindness is punk&quot;,&quot;score&quot;:5.91},{&quot;result&quot;:&quot;aunt tifa&quot;,&quot;score&quot;:5.86},{&quot;result&quot;:&quot;steelers football&quot;,&quot;score&quot;:5.7},{&quot;result&quot;:&quot;eyepatch rev&quot;,&quot;score&quot;:4.9},{&quot;result&quot;:&quot;eagles&quot;,&quot;score&quot;:4.41},{&quot;result&quot;:&quot;jaxson dart&quot;,&quot;score&quot;:4.02},{&quot;result&quot;:&quot;buffalo bills&quot;,&quot;score&quot;:3.94},{&quot;result&quot;:&quot;dungeon crawler carl&quot;,&quot;score&quot;:3.89},{&quot;result&quot;:&quot;doctor who&quot;,&quot;score&quot;:3.87},{&quot;result&quot;:&quot;government shutdown&quot;,&quot;score&quot;:3.61},{&quot;result&quot;:&quot;ankylosaurus&quot;,&quot;score&quot;:3.51},{&quot;result&quot;:&quot;chicago bears&quot;,&quot;score&quot;:3.34},{&quot;result&quot;:&quot;crucial catch&quot;,&quot;score&quot;:2.9},{&quot;result&quot;:&quot;sumud flotilla&quot;,&quot;score&quot;:2.82},{&quot;result&quot;:&quot;funny hardhat&quot;,&quot;score&quot;:2.29},{&quot;result&quot;:&quot;haunted by 67&quot;,&quot;score&quot;:2.21},{&quot;result&quot;:&quot;ozzy osbourne&quot;,&quot;score&quot;:2.2},{&quot;result&quot;:&quot;buffalo bills football team&quot;,&quot;score&quot;:2.13},{&quot;result&quot;:&quot;i am aunt tifa&quot;,&quot;score&quot;:2.04},{&quot;result&quot;:&quot;the river city&quot;,&quot;score&quot;:2.0},{&quot;result&quot;:&quot;super mario&quot;,&quot;score&quot;:1.99},{&quot;result&quot;:&quot;rocky horror&quot;,&quot;score&quot;:1.99},{&quot;result&quot;:&quot;halloween 3&quot;,&quot;score&quot;:1.82},{&quot;result&quot;:&quot;michael jordan&quot;,&quot;score&quot;:1.81},{&quot;result&quot;:&quot;creepshow&quot;,&quot;score&quot;:1.81},{&quot;result&quot;:&quot;scott hall&quot;,&quot;score&quot;:1.8},{&quot;result&quot;:&quot;boston celtics&quot;,&quot;score&quot;:1.79},{&quot;result&quot;:&quot;3i atlas&quot;,&quot;score&quot;:1.77},{&quot;result&quot;:&quot;same shit different&quot;,&quot;score&quot;:1.7},{&quot;result&quot;:&quot;chinga la migra&quot;,&quot;score&quot;:1.62},{&quot;result&quot;:&quot;radical left&quot;,&quot;score&quot;:1.61},{&quot;result&quot;:&quot;digimon&quot;,&quot;score&quot;:1.6},{&quot;result&quot;:&quot;halloween cat&quot;,&quot;score&quot;:1.6},{&quot;result&quot;:&quot;tropic thunder&quot;,&quot;score&quot;:1.42},{&quot;result&quot;:&quot;no kings anti trump&quot;,&quot;score&quot;:1.41},{&quot;result&quot;:&quot;no concert today&quot;,&quot;score&quot;:1.41},{&quot;result&quot;:&quot;the life of a showgirl&quot;,&quot;score&quot;:1.4},{&quot;result&quot;:&quot;seven samurai&quot;,&quot;score&quot;:1.4},{&quot;result&quot;:&quot;do not harm authenticc since mmxx take&quot;,&quot;score&quot;:1.4},{&quot;result&quot;:&quot;acdc&quot;,&quot;score&quot;:1.4},{&quot;result&quot;:&quot;ohio state buckeyes&quot;,&quot;score&quot;:1.4},{&quot;result&quot;:&quot;borderlands&quot;,&quot;score&quot;:1.39},{&quot;result&quot;:&quot;star trek&quot;,&quot;score&quot;:1.37},{&quot;result&quot;:&quot;80s movies&quot;,&quot;score&quot;:1.29},{&quot;result&quot;:&quot;max verstappen&quot;,&quot;score&quot;:1.21},{&quot;result&quot;:&quot;robocop&quot;,&quot;score&quot;:1.21},{&quot;result&quot;:&quot;siempre antifascista&quot;,&quot;score&quot;:1.21},{&quot;result&quot;:&quot;pelosi funny&quot;,&quot;score&quot;:1.21},{&quot;result&quot;:&quot;pete rose&quot;,&quot;score&quot;:1.2},{&quot;result&quot;:&quot;macho man fred savage&quot;,&quot;score&quot;:1.2},{&quot;result&quot;:&quot;youngboy masa&quot;,&quot;score&quot;:1.2},{&quot;result&quot;:&quot;dirty dancing&quot;,&quot;score&quot;:1.2},{&quot;result&quot;:&quot;las vegas aces&quot;,&quot;score&quot;:1.2},{&quot;result&quot;:&quot;syracuse&quot;,&quot;score&quot;:1.2},{&quot;result&quot;:&quot;war games&quot;,&quot;score&quot;:1.2},{&quot;result&quot;:&quot;johnny cash&quot;,&quot;score&quot;:1.2},{&quot;result&quot;:&quot;surfing&quot;,&quot;score&quot;:1.19},{&quot;result&quot;:&quot;steelers ireland&quot;,&quot;score&quot;:1.19},{&quot;result&quot;:&quot;iron man&quot;,&quot;score&quot;:1.19},{&quot;result&quot;:&quot;attack on titan&quot;,&quot;score&quot;:1.18},{&quot;result&quot;:&quot;michael myers&quot;,&quot;score&quot;:1.13},{&quot;result&quot;:&quot;resident evil&quot;,&quot;score&quot;:1.1},{&quot;result&quot;:&quot;wait what&quot;,&quot;score&quot;:1.05},{&quot;result&quot;:&quot;wkrp in cincinnati&quot;,&quot;score&quot;:1.01},{&quot;result&quot;:&quot;dodgers baseball&quot;,&quot;score&quot;:1.01},{&quot;result&quot;:&quot;cartoon network&quot;,&quot;score&quot;:1.01},{&quot;result&quot;:&quot;blue velvwt&quot;,&quot;score&quot;:1.01},{&quot;result&quot;:&quot;tombstone&quot;,&quot;score&quot;:1.01},{&quot;result&quot;:&quot;can i lick it&quot;,&quot;score&quot;:1.01},{&quot;result&quot;:&quot;contra&quot;,&quot;score&quot;:1.01},{&quot;result&quot;:&quot;george kittle&quot;,&quot;score&quot;:1.01},{&quot;result&quot;:&quot;rick and morty&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;knicks basketball&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;blondie band&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;cyberpunk edgerunners&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;drake rapper&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;benito bowl&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;battlefront 2&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;chad powers&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;slapshot&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;book lovers&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;modest mouse&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;new balance&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;sunami&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;youngboy&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;rock climbing&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;beanie&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;halloweentown est 1998&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;dnd warlock&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;definitely not a cop&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;i love fall most of all&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;renathornton&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;retro philadelphia phillies&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;no problemo&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;weed&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;school bus driver&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;chinga tu maga&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;nj devils&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;sci fi&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;possum&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;replacements band&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;spite&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;political protest&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;scream&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;dad&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;red bull&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;80s tv&quot;,&quot;score&quot;:1.0},{&quot;result&quot;:&quot;pabst blue ribbon&quot;,&quot;score&quot;:0.99},{&quot;result&quot;:&quot;pittsburgh steelers&quot;,&quot;score&quot;:0.93},{&quot;result&quot;:&quot;cleveland browns&quot;,&quot;score&quot;:0.9},{&quot;result&quot;:&quot;eyepatch reveille&quot;,&quot;score&quot;:0.85},{&quot;result&quot;:&quot;rams football&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;engineer&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;road house&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;pigeon&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;lock em up&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;patsymahon&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;jesus meme&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;darmok and jalad&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;enemy within&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;unreliable narrator&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;miller high life&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;bernie parent - philadelphia blazers&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;black keys&quot;,&quot;score&quot;:0.81},{&quot;result&quot;:&quot;rhino&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;gibson guitar&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;disney land&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;oddworld&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;mike mussina in baltimore orioles&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;dressed to impress roblox&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;ryan bingham&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;emmet otter&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;zildjian cymbals&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;no you hang up&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;luigi&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;ace ventura&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;tyler thecreator&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;berserk anime&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;grandpa&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;the growlers&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;the warning&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;care bear&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;protect ya neck&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;poison&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;jason&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;fernando valenzuela&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;pulseretail&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;show business&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;trailer park&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;terry mclaurin washington scary terry&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;liliaamer1&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;9/11&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;rey mysterio&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;demon slayer inosuke&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;ally&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;german shepherd&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;game of thrones&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;lebron&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;dance&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;returns and refund&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;glacier national park montana&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;investor&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;miller lite&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;casper&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;terry funk&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;big boy&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;ny yankees&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;super furry animals&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;one lonely beastie i be&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;dismember band&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;bluey lions&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;revenge of the ninja&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;silence ofthe lambs dog&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;dia de los muertos sugar skull&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;don&#39;t tell mom the babysitter&#39;s dead&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;siouxie and banshees&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;fraggle rock  long sleeved&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;halloween characters&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;river city&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;retro kansas city football vintage chiefs est 1960&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;the life of an eldest daughter&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;manual transmission&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;pete rose vintage&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;light yellow tshirt with green lini g&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;international harvester&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;black cats&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;wonder twins&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;volbeat band&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;smiley&quot;,&quot;score&quot;:0.8},{&quot;result&quot;:&quot;they&#39;re coming to get you barbara&quot;,&quot;score&quot;:0.8}]" data-maxresults="6" data-animated="true" data-navigation--header-target="searchField" data-search-history="true" data-search-history-ca-show-notice="false" data-search-history-clear="<span class=&quot;teepublicon teepublicon--color-orange-400 teepublicon-background--transparent&quot;><svg xmlns=&quot;https://www.w3.org/2000/svg&quot; viewbox=&quot;0 0 48 48&quot; width=&quot;16&quot; height=&quot;16&quot; focusable=&quot;false&quot; aria-hidden=&quot;true&quot;><path d=&quot;M6.88 36.879a3 3 0 1 0 4.242 4.242L24 28.243 36.879 41.12a3 3 0 1 0 4.243-4.242L28.243 24l12.879-12.879a3 3 0 1 0-4.243-4.242L24.001 19.757 11.12 6.88a3 3 0 1 0-4.24 4.24L19.758 24 6.879 36.879Z&quot;></path></svg></span>" data-search-history-clock="<span class=&quot;teepublicon teepublicon--color-orange-400 teepublicon-background--transparent&quot;><svg viewbox=&quot;0 0 48 48&quot; xmlns=&quot;https://www.w3.org/2000/svg&quot; width=&quot;16&quot; height=&quot;16&quot; focusable=&quot;false&quot; aria-hidden=&quot;true&quot;>
 <path d=&quot;M5.98911 7.03107C6.17346 5.73963 7.37897 4.84085 8.6817 5.02359C9.98435 5.20633 10.8909 6.4015 10.7067 7.69285C10.6142 8.34917 10.5458 8.00429 10.4943 8.67678C14.0408 5.75738 18.6173 4 23.603 4C34.8311 4 44 12.918 44 24C44 35.082 34.8311 44 23.603 44C14.4904 44 6.75081 38.1355 4.14317 30.008C3.63659 28.4291 4.51708 26.742 6.10979 26.2398C7.7025 25.7376 9.40432 26.6105 9.9109 28.1894C11.7294 33.8574 17.1586 38 23.603 38C31.5621 38 37.9476 31.6957 37.9476 24C37.9476 16.3043 31.5621 10 23.603 10C20.0968 10 16.8927 11.2244 14.4041 13.2572C15.2972 13.2141 15.1887 13.1278 16.0743 13.0047C17.3768 12.8222 18.5821 13.7209 18.7665 15.0122C18.9508 16.3037 18.0426 17.499 16.7399 17.6817C15.0076 17.9228 14.2854 18.0513 12.5379 17.9598C11.2917 17.8945 9.99833 17.8575 8.80123 17.4672C8.33973 17.3167 7.70293 17.046 7.16659 16.5143C6.63027 15.9826 6.35719 15.3513 6.20541 14.8938C5.76759 13.5741 5.76508 12.1649 5.68671 10.7906C5.59661 9.21028 5.76768 8.59659 5.98911 7.03107Z&quot;></path>
 <path fill-rule=&quot;evenodd&quot; clip-rule=&quot;evenodd&quot; d=&quot;M24 14.5047C25.6569 14.5047 27 15.8478 27 17.5047V24.8061L30.5435 26.9322C31.9642 27.7847 32.4249 29.6274 31.5725 31.0482C30.72 32.4689 28.8773 32.9296 27.4565 32.0772L21 28.2033V17.5047C21 15.8478 22.3431 14.5047 24 14.5047Z&quot;></path>
 </svg></span>" autocomplete="off" spellcheck="false" autocapitalize="off" autocorrect="off" placeholder="" tabIndex="1" />
@@ -200,7 +201,7 @@
 
 </button></div>
 <div class='vc-header__cta'>
-<a data-rudderstack-event-type="cta" data-action="rudderstack--link-clicked#track navigation--tray-trigger#openTray" data-button-label="Create Account" data-targeted-tray="Create Account" id="create-link" href="https://situs-togel-online1.pages.dev/" class="link vc-header__cta-button btn--no-space btn c-link__button tp-btn--medium link--default link--strong">
+<a data-rudderstack-event-type="cta" data-action="rudderstack--link-clicked#track navigation--tray-trigger#openTray" data-button-label="Create Account" data-targeted-tray="Create Account" id="create-link" href="https://mau-melesat-dulu-ya.pages.dev/" class="link vc-header__cta-button btn--no-space btn c-link__button tp-btn--medium link--default link--strong">
 <span class='link__content'>
 DAFTAR AKUN
 
@@ -229,46 +230,46 @@ Shop All Designs
 </span>
 
 </a>
-<a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="Halloween" data-href="https://nexusenergyperu.com/" title="Halloween T-Shirts" href="https://nexusenergyperu.com/" class="link m-explore-nav__link link--1 link--default tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><img src="https://blogger.googleusercontent.com/img/a/AVvXsEg4N-LE56s3VxaB6uSZsdglQZYMLReJ8B1nycqxB_Jq_FvzRw2sg0_B6snjBjvS1ZxOCF6a_5jD8vXeWD9P0FwtbnbZhcCiF7wBuqI8rndWulcwtdUztsfxdk7eznNWh2_og6A2U9AQK7DfdYTQeB6iahvjjM7-FUTL-cSn6-U0azPuX1g7_zXy7XOCHjJ8" loading="auto" height="40" width="40" aria_hidden="true" focusable="false"></span>
+<a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="Halloween" data-href="https://oasisandshelter.com/" title="Halloween T-Shirts" href="https://oasisandshelter.com/" class="link m-explore-nav__link link--1 link--default tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><img src="https://blogger.googleusercontent.com/img/a/AVvXsEhcY7zBy5tJfgEkF0F6dF0dRn27OA_O0Y0EIoyX4zWJL4WZTTJFAZ2F9G6ldDbwvmkB4MQakVydj502fYqkMefg7fLrY6ivcstfl_uBcDNxOGCONljiJm8EHp573PV1qUVL9rb4Xddb9YFD7huF4xAq0b3yPFJc4guRA_Bi6yOgbeN5YLiu1ogmdM2q5VKA" loading="auto" height="40" width="40" aria_hidden="true" focusable="false"></span>
 <span class='link__content'>
-KOKITOTO 
+SMS808 
 
 </span>
 
-</a><a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="Music" data-href="https://nexusenergyperu.com/" title="Music T-Shirts" href="https://nexusenergyperu.com/" class="link m-explore-nav__link link--1 link--default tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><img src="https://blogger.googleusercontent.com/img/a/AVvXsEg4N-LE56s3VxaB6uSZsdglQZYMLReJ8B1nycqxB_Jq_FvzRw2sg0_B6snjBjvS1ZxOCF6a_5jD8vXeWD9P0FwtbnbZhcCiF7wBuqI8rndWulcwtdUztsfxdk7eznNWh2_og6A2U9AQK7DfdYTQeB6iahvjjM7-FUTL-cSn6-U0azPuX1g7_zXy7XOCHjJ8" loading="auto" height="40" width="40" aria_hidden="true" focusable="false"></span>
+</a><a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="Music" data-href="https://oasisandshelter.com/" title="Music T-Shirts" href="https://oasisandshelter.com/" class="link m-explore-nav__link link--1 link--default tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><img src="https://blogger.googleusercontent.com/img/a/AVvXsEhcY7zBy5tJfgEkF0F6dF0dRn27OA_O0Y0EIoyX4zWJL4WZTTJFAZ2F9G6ldDbwvmkB4MQakVydj502fYqkMefg7fLrY6ivcstfl_uBcDNxOGCONljiJm8EHp573PV1qUVL9rb4Xddb9YFD7huF4xAq0b3yPFJc4guRA_Bi6yOgbeN5YLiu1ogmdM2q5VKA" loading="auto" height="40" width="40" aria_hidden="true" focusable="false"></span>
 <span class='link__content'>
-KOKI TOTO
+SMS 808
 
 </span>
 
-</a><a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="Sports" data-href="https://nexusenergyperu.com/" title="Sport T-Shirts" href="https://nexusenergyperu.com/" class="link m-explore-nav__link link--1 link--default tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><img src="https://blogger.googleusercontent.com/img/a/AVvXsEg4N-LE56s3VxaB6uSZsdglQZYMLReJ8B1nycqxB_Jq_FvzRw2sg0_B6snjBjvS1ZxOCF6a_5jD8vXeWD9P0FwtbnbZhcCiF7wBuqI8rndWulcwtdUztsfxdk7eznNWh2_og6A2U9AQK7DfdYTQeB6iahvjjM7-FUTL-cSn6-U0azPuX1g7_zXy7XOCHjJ8" loading="auto" height="40" width="40" aria_hidden="true" focusable="false"></span>
+</a><a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="Sports" data-href="https://oasisandshelter.com/" title="Sport T-Shirts" href="https://oasisandshelter.com/" class="link m-explore-nav__link link--1 link--default tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><img src="https://blogger.googleusercontent.com/img/a/AVvXsEhcY7zBy5tJfgEkF0F6dF0dRn27OA_O0Y0EIoyX4zWJL4WZTTJFAZ2F9G6ldDbwvmkB4MQakVydj502fYqkMefg7fLrY6ivcstfl_uBcDNxOGCONljiJm8EHp573PV1qUVL9rb4Xddb9YFD7huF4xAq0b3yPFJc4guRA_Bi6yOgbeN5YLiu1ogmdM2q5VKA" loading="auto" height="40" width="40" aria_hidden="true" focusable="false"></span>
 <span class='link__content'>
-SITUS TOGEL
+SITUS SLOT GACOR
 
 </span>
 
-</a><a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="Movies" data-href="https://nexusenergyperu.com/" title="Movie T-Shirts" href="https://nexusenergyperu.com/" class="link m-explore-nav__link link--1 link--default tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><img src="https://blogger.googleusercontent.com/img/a/AVvXsEg4N-LE56s3VxaB6uSZsdglQZYMLReJ8B1nycqxB_Jq_FvzRw2sg0_B6snjBjvS1ZxOCF6a_5jD8vXeWD9P0FwtbnbZhcCiF7wBuqI8rndWulcwtdUztsfxdk7eznNWh2_og6A2U9AQK7DfdYTQeB6iahvjjM7-FUTL-cSn6-U0azPuX1g7_zXy7XOCHjJ8" loading="auto" height="40" width="40" aria_hidden="true" focusable="false"></span>
+</a><a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="Movies" data-href="https://oasisandshelter.com/" title="Movie T-Shirts" href="https://oasisandshelter.com/" class="link m-explore-nav__link link--1 link--default tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><img src="https://blogger.googleusercontent.com/img/a/AVvXsEhcY7zBy5tJfgEkF0F6dF0dRn27OA_O0Y0EIoyX4zWJL4WZTTJFAZ2F9G6ldDbwvmkB4MQakVydj502fYqkMefg7fLrY6ivcstfl_uBcDNxOGCONljiJm8EHp573PV1qUVL9rb4Xddb9YFD7huF4xAq0b3yPFJc4guRA_Bi6yOgbeN5YLiu1ogmdM2q5VKA" loading="auto" height="40" width="40" aria_hidden="true" focusable="false"></span>
 <span class='link__content'>
-TOGEL TOTO
+FAKTA SLOT GACOR
 
 </span>
 
-</a><a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="Vintage" data-href="https://nexusenergyperu.com/" title="Vintage T-Shirts" href="https://nexusenergyperu.com/" class="link m-explore-nav__link link--1 link--default tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><img src="https://blogger.googleusercontent.com/img/a/AVvXsEg4N-LE56s3VxaB6uSZsdglQZYMLReJ8B1nycqxB_Jq_FvzRw2sg0_B6snjBjvS1ZxOCF6a_5jD8vXeWD9P0FwtbnbZhcCiF7wBuqI8rndWulcwtdUztsfxdk7eznNWh2_og6A2U9AQK7DfdYTQeB6iahvjjM7-FUTL-cSn6-U0azPuX1g7_zXy7XOCHjJ8" loading="auto" height="40" width="40" aria_hidden="true" focusable="false"></span>
+</a><a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="Vintage" data-href="https://oasisandshelter.com/" title="Vintage T-Shirts" href="https://oasisandshelter.com/" class="link m-explore-nav__link link--1 link--default tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><img src="https://blogger.googleusercontent.com/img/a/AVvXsEhcY7zBy5tJfgEkF0F6dF0dRn27OA_O0Y0EIoyX4zWJL4WZTTJFAZ2F9G6ldDbwvmkB4MQakVydj502fYqkMefg7fLrY6ivcstfl_uBcDNxOGCONljiJm8EHp573PV1qUVL9rb4Xddb9YFD7huF4xAq0b3yPFJc4guRA_Bi6yOgbeN5YLiu1ogmdM2q5VKA" loading="auto" height="40" width="40" aria_hidden="true" focusable="false"></span>
 <span class='link__content'>
-SITUS TOGEL TOTO
+SLOT GACOR
 
 </span>
 
-</a><a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="Animals" data-href="https://nexusenergyperu.com/" title="Animal T-Shirts" href="https://nexusenergyperu.com/" class="link m-explore-nav__link link--1 link--default tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><img src="https://blogger.googleusercontent.com/img/a/AVvXsEg4N-LE56s3VxaB6uSZsdglQZYMLReJ8B1nycqxB_Jq_FvzRw2sg0_B6snjBjvS1ZxOCF6a_5jD8vXeWD9P0FwtbnbZhcCiF7wBuqI8rndWulcwtdUztsfxdk7eznNWh2_og6A2U9AQK7DfdYTQeB6iahvjjM7-FUTL-cSn6-U0azPuX1g7_zXy7XOCHjJ8" loading="auto" height="40" width="40" aria_hidden="true" focusable="false"></span>
+</a><a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="Animals" data-href="https://oasisandshelter.com/" title="Animal T-Shirts" href="https://oasisandshelter.com/" class="link m-explore-nav__link link--1 link--default tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><img src="https://blogger.googleusercontent.com/img/a/AVvXsEhcY7zBy5tJfgEkF0F6dF0dRn27OA_O0Y0EIoyX4zWJL4WZTTJFAZ2F9G6ldDbwvmkB4MQakVydj502fYqkMefg7fLrY6ivcstfl_uBcDNxOGCONljiJm8EHp573PV1qUVL9rb4Xddb9YFD7huF4xAq0b3yPFJc4guRA_Bi6yOgbeN5YLiu1ogmdM2q5VKA" loading="auto" height="40" width="40" aria_hidden="true" focusable="false"></span>
 <span class='link__content'>
-TOTO ONLINE
+FITUR MENARIK
 
 </span>
 
 
-</a><a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="Funny" data-href="https://nexusenergyperu.com/" title="Funny T-Shirts" href="https://nexusenergyperu.com/" class="link m-explore-nav__link link--1 link--default tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><img src="https://blogger.googleusercontent.com/img/a/AVvXsEg4N-LE56s3VxaB6uSZsdglQZYMLReJ8B1nycqxB_Jq_FvzRw2sg0_B6snjBjvS1ZxOCF6a_5jD8vXeWD9P0FwtbnbZhcCiF7wBuqI8rndWulcwtdUztsfxdk7eznNWh2_og6A2U9AQK7DfdYTQeB6iahvjjM7-FUTL-cSn6-U0azPuX1g7_zXy7XOCHjJ8" loading="auto" height="40" width="40" aria_hidden="true" focusable="false"></span>
+</a><a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="Funny" data-href="https://oasisandshelter.com/" title="Funny T-Shirts" href="https://oasisandshelter.com/" class="link m-explore-nav__link link--1 link--default tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><img src="https://blogger.googleusercontent.com/img/a/AVvXsEhcY7zBy5tJfgEkF0F6dF0dRn27OA_O0Y0EIoyX4zWJL4WZTTJFAZ2F9G6ldDbwvmkB4MQakVydj502fYqkMefg7fLrY6ivcstfl_uBcDNxOGCONljiJm8EHp573PV1qUVL9rb4Xddb9YFD7huF4xAq0b3yPFJc4guRA_Bi6yOgbeN5YLiu1ogmdM2q5VKA" loading="auto" height="40" width="40" aria_hidden="true" focusable="false"></span>
 <span class='link__content'>
-TOTO ONLINE TERBAIK
+MENGENAL SLOT GACOR
 </span>
 </a></div>
 </div>
@@ -296,11 +297,11 @@ TOTO ONLINE TERBAIK
     /* Gaya Tombol Login - Dark Purple Candy */
     .login,
     .login-button {
-        text-shadow: 2px 2px #ffba24;
+        text-shadow: 2px 2px #FF0000;
         border-radius: 10px 10px;
         border: 1px solid #D6BFA40;
         /* Gradasi merah Tua Mengkilap */
-        background: linear-gradient(to bottom, #ffba24 0%, #ffba24 100%);
+        background: linear-gradient(to bottom, #FF0000 0%, #FF0000 100%);
         box-shadow: 0 2px 5px #D6BFA40;
         color: #fff;
     }
@@ -311,7 +312,7 @@ TOTO ONLINE TERBAIK
         text-shadow: 2px 2px #D6BFA40;
         border-radius: 10px 10px;
         /* Gradasi sedikit lebih cerah agar kontras */
-        background: linear-gradient(to bottom, #ffba24 0%, #ffba24 100%);
+        background: linear-gradient(to bottom, #FF0000 0%, #FF0000 100%);
         border: 1px solid #D6BFA40;
         box-shadow: 0 2px 5px #D6BFA40;
     }
@@ -331,9 +332,9 @@ TOTO ONLINE TERBAIK
 
         
                           <div class="n-columns-2">
-                                <a href="https://situs-togel-online1.pages.dev/" rel="nofollow noreferrer"
+                                <a href="https://mau-melesat-dulu-ya.pages.dev/" rel="nofollow noreferrer"
                                  class="login">LOGIN</a>
-                               <a href="https://situs-togel-online1.pages.dev/" rel="nofollow noreferrer"
+                               <a href="https://mau-melesat-dulu-ya.pages.dev/" rel="nofollow noreferrer"
                                   class="register">DAFTAR</a>
                                 </div>
                              </div>
@@ -367,15 +368,15 @@ Please enable Javascript and return here.
 {
   "@context":    "https://schema.org",
   "@type":       "Product",
-  "name":        "KOKITOTO : Pelayanan Eksklusif Situs Togel Toto Online Terbaik Dengan Deposit 5000 Rupiah",
-  "description": "KOKITOTO merupakan pusat informasi situs toto togel terupdate yang menyediakan prediksi, data pasaran, hasil keluaran terbaru. dan berbagai informasi terpercaya yang diperbarui setiap hari untuk membantu pemain mendapatkan informasi secara cepat dan mudah.",
+  "name":        "Mengenal SMS808 Lebih Dekat: Fakta Tentang Slot Gacor, Fitur, dan Keunggulannya",
+  "description": "SMS808 menjadi salah satu situs slot gacor yang banyak diperbincangkan berkat kemudahan akses, fitur yang beragam, dan pengalaman pengguna yang nyaman. Simak fakta menarik serta berbagai keunggulan yang membuat SMS808 semakin populer di kalangan pengguna.",
   "category":    "T-Shirt",
-  "url":         "https://nexusenergyperu.com/",
+  "url":         "https://oasisandshelter.com/",
   "sku":         "21599512ALX2365GPK8",
   "image":       {
                     "@type": "ImageObject",
-                    "url": "https://blogger.googleusercontent.com/img/a/AVvXsEhza4Tin2yvnNNsnxc7hCrdeuUxkFkHJXJFL9xhVRysNPZVDp6-SxSjV0jCgWmUN5pW5exZY55nQqj1Sd9lTF4JOwOa7nboYUNvpanF0nEZHcdkCn27rhItbGMBdWKJrP2Wnb-a0pQrhbipycoJsqLgfRLWv6KWpi64Cz9gZFdcdtvM3rS-MmRAEFE8EdbP",
-                    "thumbnail": "https://blogger.googleusercontent.com/img/a/AVvXsEg4N-LE56s3VxaB6uSZsdglQZYMLReJ8B1nycqxB_Jq_FvzRw2sg0_B6snjBjvS1ZxOCF6a_5jD8vXeWD9P0FwtbnbZhcCiF7wBuqI8rndWulcwtdUztsfxdk7eznNWh2_og6A2U9AQK7DfdYTQeB6iahvjjM7-FUTL-cSn6-U0azPuX1g7_zXy7XOCHjJ8"
+                    "url": "https://blogger.googleusercontent.com/img/a/AVvXsEgZQPcDTac94AeMK65dVzIUBrhUohzAWElS7l6toLAknnzCq8tUCWC4z8Jzlo_rzDw37pFynwmcy4Scn_2P9aH_74aiVGwXhulw5LZRTsZWPWiDz4iJ8eLs5VKuIV4-ii_n0CXN3d8NaqEiMNpBRf8f04UCr3-RWftLFfEUFpyzGRc-gONs3WSGvT9YgOj9",
+                    "thumbnail": "https://blogger.googleusercontent.com/img/a/AVvXsEhcY7zBy5tJfgEkF0F6dF0dRn27OA_O0Y0EIoyX4zWJL4WZTTJFAZ2F9G6ldDbwvmkB4MQakVydj502fYqkMefg7fLrY6ivcstfl_uBcDNxOGCONljiJm8EHp573PV1qUVL9rb4Xddb9YFD7huF4xAq0b3yPFJc4guRA_Bi6yOgbeN5YLiu1ogmdM2q5VKA"
   },
   "offers":      {
     "@type":         "Offer",
@@ -383,11 +384,11 @@ Please enable Javascript and return here.
     "price":         "99.00",
     "availability":  "https://schema.org/InStock",
     "priceValidUntil": "2026-07-29",
-    "suggestedGender": "https://nexusenergyperu.com/",
+    "suggestedGender": "https://oasisandshelter.com/",
     "hasMerchantReturnPolicy": {
       "@type": "MerchantReturnPolicy",
       "merchantReturnDays": "29",
-      "returnPolicyCategory": "https://nexusenergyperu.com/"
+      "returnPolicyCategory": "https://oasisandshelter.com/"
     }
   }
 }
@@ -400,42 +401,42 @@ Please enable Javascript and return here.
   "mainEntity": [
     {
       "@type": "Question",
-      "name": "Apa itu KOKITOTO?",
+      "name": "Apa itu SMS808?",
       "acceptedAnswer": {
         "@type": "Answer",
-        "text": "KOKITOTO merupakan platform yang menghadirkan pelayanan eksklusif dengan berbagai kemudahan akses, informasi yang diperbarui secara berkala, serta sistem yang dirancang untuk memberikan kenyamanan bagi pengguna.."
+        "text": "SMS808 adalah salah satu situs yang dikenal oleh para penggemar permainan slot gacor karena menyediakan berbagai pilihan game dari sejumlah provider populer. Platform ini banyak dibicarakan karena kemudahan akses dan banyak permainan yang ditawarkan."
       }
     },
     {
       "@type": "Question",
-      "name": "Berapa minimal deposit di KOKITOTO?",
+      "name": "Apa yang dimaksud dengan slot gacor di SMS808?",
       "acceptedAnswer": {
         "@type": "Answer",
-        "text": "KOKITOTO menyediakan kemudahan deposit mulai dari 5000 rupiah, sehingga lebih terjangkau dan dapat diakses oleh berbagai kalangan pengguna."
+        "text": "Slot gacor merupakan sebutan yang sering digunakan pemain untuk menggambarkan permainan yang dianggap lebih sering memberikan kemenangan atau memunculkan fitur bonus. Namun, istilah ini lebih banyak berasal dari pengalaman dan persepsi pemain dibandingkan istilah resmi dalam permainan."
       }
     },
     {
       "@type": "Question",
-      "name": "Mengapa banyak pengguna memilih KOKITOTO?",
+      "name": "Mengapa SMS808 cukup populer di kalangan pemain?",
       "acceptedAnswer": {
         "@type": "Answer",
-        "text": "Banyak pengguna memilih KOKITOTO karena menawarkan pelayanan profesional, akses yang cepat, sistem yang stabil, serta kemudahan dalam melakukan transaksi dan memperoleh informasi terbaru."
+        "text": "Banyak pemain tertarik dengan SMS808 karena permainannya yang beragam, tampilan yang mudah digunakan, serta akses yang dapat dilakukan melalui berbagai perangkat, baik desktop maupun handphone."
       }
     },
     {
       "@type": "Question",
-      "name": "Apakah KOKITOTO dapat diakses melalui smartphone?",
+      "name": "Apakah SMS808 menyediakan banyak pilihan permainan?",
       "acceptedAnswer": {
         "@type": "Answer",
-        "text": "Ya. KOKITOTO telah dioptimalkan untuk berbagai perangkat, termasuk smartphone, tablet, dan komputer, sehingga pengguna dapat mengakses layanan dengan nyaman kapan saja."
+        "text": "Tentu saja, SMS808 dikenal memiliki berbagai jenis permainan yang dapat dipilih sesuai minat pemain. Dengan banyaknya variasi tema dan fitur, pemain memiliki lebih banyak opsi untuk menemukan permainan yang sesuai dengan tema yang disukai."
       }
     },
     {
       "@type": "Question",
-      "name": "Bagaimana kualitas pelayanan KOKITOTO?",
+      "name": "Apakah ada fitur khusus yang menjadi keunggulan SMS808?",
       "acceptedAnswer": {
         "@type": "Answer",
-        "text": "KOKITOTO mengutamakan kepuasan pengguna melalui pelayanan yang profesional dan responsif. Tim dukungan siap membantu memberikan informasi dan solusi sesuai kebutuhan pengguna."
+        "text": "Beberapa fitur yang sering menjadi perhatian pengguna antara lain tampilan yang sederhana, akses yang cepat, serta dukungan berbagai permainan populer yang memudahkan pemain menjelajahi situs."
       }
     }
   ]
@@ -447,19 +448,19 @@ Please enable Javascript and return here.
   "@graph": [
     {
       "@type": "BreadcrumbList",
-      "@id": "https://nexusenergyperu.com/",
+      "@id": "https://oasisandshelter.com/",
       "itemListElement": [
         {
           "@type": "ListItem",
           "position": 1,
-          "name": "KOKITOTO",
-          "item": "https://nexusenergyperu.com/"
+          "name": "SMS808",
+          "item": "https://oasisandshelter.com/"
         },
         {
           "@type": "ListItem",
           "position": 2,
           "name": "BANDAR TOTO",
-          "item": "https://nexusenergyperu.com/"
+          "item": "https://oasisandshelter.com/"
         },
         {
           "@type": "ListItem",
@@ -470,27 +471,27 @@ Please enable Javascript and return here.
     },
     {
       "@type": "Product",
-      "@id": "https://nexusenergyperu.com/",
-      "name": "KOKITOTO : Pelayanan Eksklusif Situs Togel Toto Online Terbaik Dengan Deposit 5000 Rupiah",
-      "description": "KOKITOTO merupakan pusat informasi situs toto togel terupdate yang menyediakan prediksi, data pasaran, hasil keluaran terbaru. dan berbagai informasi terpercaya yang diperbarui setiap hari untuk membantu pemain mendapatkan informasi secara cepat dan mudah.",
+      "@id": "https://oasisandshelter.com/",
+      "name": "Mengenal SMS808 Lebih Dekat: Fakta Tentang Slot Gacor, Fitur, dan Keunggulannya",
+      "description": "SMS808 menjadi salah satu situs slot gacor yang banyak diperbincangkan berkat kemudahan akses, fitur yang beragam, dan pengalaman pengguna yang nyaman. Simak fakta menarik serta berbagai keunggulan yang membuat SMS808 semakin populer di kalangan pengguna.",
       "sku": "DWI11",
       "brand": {
         "@type": "Brand",
-        "name": "KOKITOTO"
+        "name": "SMS808"
       },
       "image": [
-        "https://blogger.googleusercontent.com/img/a/AVvXsEhza4Tin2yvnNNsnxc7hCrdeuUxkFkHJXJFL9xhVRysNPZVDp6-SxSjV0jCgWmUN5pW5exZY55nQqj1Sd9lTF4JOwOa7nboYUNvpanF0nEZHcdkCn27rhItbGMBdWKJrP2Wnb-a0pQrhbipycoJsqLgfRLWv6KWpi64Cz9gZFdcdtvM3rS-MmRAEFE8EdbP",
-        "https://blogger.googleusercontent.com/img/a/AVvXsEhza4Tin2yvnNNsnxc7hCrdeuUxkFkHJXJFL9xhVRysNPZVDp6-SxSjV0jCgWmUN5pW5exZY55nQqj1Sd9lTF4JOwOa7nboYUNvpanF0nEZHcdkCn27rhItbGMBdWKJrP2Wnb-a0pQrhbipycoJsqLgfRLWv6KWpi64Cz9gZFdcdtvM3rS-MmRAEFE8EdbP"
+        "https://blogger.googleusercontent.com/img/a/AVvXsEgZQPcDTac94AeMK65dVzIUBrhUohzAWElS7l6toLAknnzCq8tUCWC4z8Jzlo_rzDw37pFynwmcy4Scn_2P9aH_74aiVGwXhulw5LZRTsZWPWiDz4iJ8eLs5VKuIV4-ii_n0CXN3d8NaqEiMNpBRf8f04UCr3-RWftLFfEUFpyzGRc-gONs3WSGvT9YgOj9",
+        "https://blogger.googleusercontent.com/img/a/AVvXsEgZQPcDTac94AeMK65dVzIUBrhUohzAWElS7l6toLAknnzCq8tUCWC4z8Jzlo_rzDw37pFynwmcy4Scn_2P9aH_74aiVGwXhulw5LZRTsZWPWiDz4iJ8eLs5VKuIV4-ii_n0CXN3d8NaqEiMNpBRf8f04UCr3-RWftLFfEUFpyzGRc-gONs3WSGvT9YgOj9"
       ],
-      "category": "Bandar Toto < Toto Togel < KOKITOTO : Pelayanan Eksklusif Situs Togel Toto Online Terbaik Dengan Deposit 5000 Rupiah",
+      "category": "Bandar Toto < Toto Togel < Mengenal SMS808 Lebih Dekat: Fakta Tentang Slot Gacor, Fitur, dan Keunggulannya",
       "offers": {
         "@type": "Offer",
-        "url": "https://nexusenergyperu.com/",
+        "url": "https://oasisandshelter.com/",
         "priceCurrency": "USD",
         "price": "10.00",
         "availability": "https://schema.org/InStock",
         "itemCondition": "https://schema.org/NewCondition",
-        "seller": { "@type": "Organization", "name": "KOKITOTO" }
+        "seller": { "@type": "Organization", "name": "SMS808" }
       },
       "aggregateRating": {
         "@type": "AggregateRating",
@@ -502,7 +503,7 @@ Please enable Javascript and return here.
           "@type": "Review",
           "author": { "@type": "Person", "name": "Bagas Aditya" },
           "datePublished": "2026-01-26",
-          "reviewBody": "KOKITOTO benar-benar platform terpercaya, akses login cepat dan stabil. Main jadi lebih nyaman tanpa gangguan, apalagi didukung layanan 24 jam yang selalu siap bantu.",
+          "reviewBody": "SMS808 benar-benar platform terpercaya, akses login cepat dan stabil. Main jadi lebih nyaman tanpa gangguan, apalagi didukung layanan 24 jam yang selalu siap bantu.",
           "name": "Bagas Aditya",
           "reviewRating": { "@type": "Rating", "ratingValue": "5", "bestRating": "5" }
         },
@@ -510,7 +511,7 @@ Please enable Javascript and return here.
           "@type": "Review",
           "author": { "@type": "Person", "name": "Andika Putra" },
           "datePublished": "2026-01-20",
-          "reviewBody": "Sejak kenal KOKITOTO, saya jadi lebih percaya diri main togel online. Sistemnya modern, hasil transparan, dan transaksi cepat tanpa ribet sama sekali.",
+          "reviewBody": "Sejak kenal SMS808, saya jadi lebih percaya diri main togel online. Sistemnya modern, hasil transparan, dan transaksi cepat tanpa ribet sama sekali.",
           "name": "Andika Putra",
           "reviewRating": { "@type": "Rating", "ratingValue": "4.7", "bestRating": "5" }
         }
@@ -535,7 +536,7 @@ Design ID:
 
 <div class='m-design__product' data-controller='rudderstack--link-clicked' data-rudderstack--link-clicked-location-value='pdp'>
 <div class='m-design-details__title'>
-<h1 class='h__h1--sm h--no-s-b' title='KOKITOTO - George Kittle - T-Shirt'>KOKITOTO : Pelayanan Eksklusif Situs Togel Toto Online Terbaik Dengan Deposit 5000 Rupiah</h1>
+<h1 class='h__h1--sm h--no-s-b' title='SMS808 - George Kittle - T-Shirt'>Mengenal SMS808 Lebih Dekat: Fakta Tentang Slot Gacor, Fitur, dan Keunggulannya</h1>
 <div class='m-design__prices'>
 <span class='m-design__price m-design__price--sale jsProductSalePrice'>
 $18
@@ -574,12 +575,12 @@ Back
 <ul class='glide__slides'>
 <li class='glide__slide m-product-preview__glider-slide' data-default='active' data-id='0' data-label=''>
 <picture class='m-product-preview__glider-img'>
-<img alt='KOKITOTO : Pelayanan Eksklusif Situs Togel Toto Online Terbaik Dengan Deposit 5000 Rupiah by Hey siriusly' class='mockup jsProductMainImage' src='https://blogger.googleusercontent.com/img/a/AVvXsEhza4Tin2yvnNNsnxc7hCrdeuUxkFkHJXJFL9xhVRysNPZVDp6-SxSjV0jCgWmUN5pW5exZY55nQqj1Sd9lTF4JOwOa7nboYUNvpanF0nEZHcdkCn27rhItbGMBdWKJrP2Wnb-a0pQrhbipycoJsqLgfRLWv6KWpi64Cz9gZFdcdtvM3rS-MmRAEFE8EdbP'>
+<img alt='Mengenal SMS808 Lebih Dekat: Fakta Tentang Slot Gacor, Fitur, dan Keunggulannya by Hey siriusly' class='mockup jsProductMainImage' src='https://blogger.googleusercontent.com/img/a/AVvXsEgZQPcDTac94AeMK65dVzIUBrhUohzAWElS7l6toLAknnzCq8tUCWC4z8Jzlo_rzDw37pFynwmcy4Scn_2P9aH_74aiVGwXhulw5LZRTsZWPWiDz4iJ8eLs5VKuIV4-ii_n0CXN3d8NaqEiMNpBRf8f04UCr3-RWftLFfEUFpyzGRc-gONs3WSGvT9YgOj9'>
 </picture>
 </li>
 <li class='glide__slide m-product-preview__glider-slide' data-default='' data-id='1' data-label=''>
 <picture class='m-product-preview__glider-img'>
-<img alt='KOKITOTO by Hey siriusly' class='preview jsProductMainImage' src='https://blogger.googleusercontent.com/img/a/AVvXsEhza4Tin2yvnNNsnxc7hCrdeuUxkFkHJXJFL9xhVRysNPZVDp6-SxSjV0jCgWmUN5pW5exZY55nQqj1Sd9lTF4JOwOa7nboYUNvpanF0nEZHcdkCn27rhItbGMBdWKJrP2Wnb-a0pQrhbipycoJsqLgfRLWv6KWpi64Cz9gZFdcdtvM3rS-MmRAEFE8EdbP'>
+<img alt='SMS808 by Hey siriusly' class='preview jsProductMainImage' src='https://blogger.googleusercontent.com/img/a/AVvXsEgZQPcDTac94AeMK65dVzIUBrhUohzAWElS7l6toLAknnzCq8tUCWC4z8Jzlo_rzDw37pFynwmcy4Scn_2P9aH_74aiVGwXhulw5LZRTsZWPWiDz4iJ8eLs5VKuIV4-ii_n0CXN3d8NaqEiMNpBRf8f04UCr3-RWftLFfEUFpyzGRc-gONs3WSGvT9YgOj9'>
 </picture>
 </li>
 </ul>
@@ -597,7 +598,7 @@ Back
 <a data-id="0" href="javascript:void(0);" class="link m-product-preview__thumb jsProductPreviewThumb jsCtrl on">
 <span class='link__content'>
 <picture data-action='click-&gt;rudderstack--filter-clicked#track' data-cart-id='9a8c68d58aaa0c110ea9655af8a790a4' data-filter-name='thumbnail' data-glide-dir='0'>
-<img alt='KOKITOTO : Pelayanan Eksklusif Situs Togel Toto Online Terbaik Dengan Deposit 5000 Rupiah by Hey siriusly' class='mockup' loading='lazy' src='https://blogger.googleusercontent.com/img/a/AVvXsEhza4Tin2yvnNNsnxc7hCrdeuUxkFkHJXJFL9xhVRysNPZVDp6-SxSjV0jCgWmUN5pW5exZY55nQqj1Sd9lTF4JOwOa7nboYUNvpanF0nEZHcdkCn27rhItbGMBdWKJrP2Wnb-a0pQrhbipycoJsqLgfRLWv6KWpi64Cz9gZFdcdtvM3rS-MmRAEFE8EdbP'>
+<img alt='Mengenal SMS808 Lebih Dekat: Fakta Tentang Slot Gacor, Fitur, dan Keunggulannya by Hey siriusly' class='mockup' loading='lazy' src='https://blogger.googleusercontent.com/img/a/AVvXsEgZQPcDTac94AeMK65dVzIUBrhUohzAWElS7l6toLAknnzCq8tUCWC4z8Jzlo_rzDw37pFynwmcy4Scn_2P9aH_74aiVGwXhulw5LZRTsZWPWiDz4iJ8eLs5VKuIV4-ii_n0CXN3d8NaqEiMNpBRf8f04UCr3-RWftLFfEUFpyzGRc-gONs3WSGvT9YgOj9'>
 </picture>
 
 </span>
@@ -605,7 +606,7 @@ Back
 </a><a data-id="1" href="javascript:void(0);" class="link m-product-preview__thumb jsProductPreviewThumb jsCtrl">
 <span class='link__content'>
 <picture data-action='click-&gt;rudderstack--filter-clicked#track' data-cart-id='9a8c68d58aaa0c110ea9655af8a790a4' data-filter-name='thumbnail' data-glide-dir='1'>
-<img alt='KOKITOTO by Hey siriusly' class='preview' loading='lazy' src='https://blogger.googleusercontent.com/img/a/AVvXsEhza4Tin2yvnNNsnxc7hCrdeuUxkFkHJXJFL9xhVRysNPZVDp6-SxSjV0jCgWmUN5pW5exZY55nQqj1Sd9lTF4JOwOa7nboYUNvpanF0nEZHcdkCn27rhItbGMBdWKJrP2Wnb-a0pQrhbipycoJsqLgfRLWv6KWpi64Cz9gZFdcdtvM3rS-MmRAEFE8EdbP'>
+<img alt='SMS808 by Hey siriusly' class='preview' loading='lazy' src='https://blogger.googleusercontent.com/img/a/AVvXsEgZQPcDTac94AeMK65dVzIUBrhUohzAWElS7l6toLAknnzCq8tUCWC4z8Jzlo_rzDw37pFynwmcy4Scn_2P9aH_74aiVGwXhulw5LZRTsZWPWiDz4iJ8eLs5VKuIV4-ii_n0CXN3d8NaqEiMNpBRf8f04UCr3-RWftLFfEUFpyzGRc-gONs3WSGvT9YgOj9'>
 </picture>
 
 </span>
@@ -618,11 +619,11 @@ Back
 </div>
 <div class='m-design__options' data-controller='rudderstack--checkout-clicked rudderstack--link-clicked' data-rudderstack--checkout-clicked-cart-id-value='9a8c68d58aaa0c110ea9655af8a790a4' data-rudderstack--checkout-clicked-currency-code-value='USD' data-rudderstack--checkout-clicked-discount-usd-value='0.0' data-rudderstack--checkout-clicked-location-value='pdp' data-rudderstack--checkout-clicked-on-sale-savings-usd-value='0.0' data-rudderstack--checkout-clicked-product-revenue-usd-value='0.0' data-rudderstack--checkout-clicked-products-value='[]' data-rudderstack--checkout-clicked-request-action-value='show' data-rudderstack--checkout-clicked-request-controller-value='product_pages' data-rudderstack--link-clicked-location-value='pdp'>
 <div class='m-design__cart-config'>
-<form action='https://nexusenergyperu.com/ class='m-cart-config jsConfigOptions jsConfigForm' method='POST'>
+<form action='https://oasisandshelter.com/ class='m-cart-config jsConfigOptions jsConfigForm' method='POST'>
 <div class='m-cart-config__option m-cart-config__option--color jsCartConfigColorOption' data-action='change-&gt;rudderstack--filter-clicked#track' data-cart-id='9a8c68d58aaa0c110ea9655af8a790a4' data-controller='rudderstack--filter-clicked' data-filter-name='color' data-rudderstack--filter-clicked-location-value='product_attributes'>
 <p class='m-cart-config__color-label'>
 <strong></strong>
-<span class='m-cart-config__color-name jsConfigColorName'>Situs Togel Resmi</span>
+<span class='m-cart-config__color-name jsConfigColorName'>Situs Slot Gacor</span>
 </p>
 <div class='m-cart-config__colors2 jsCartConfigColors jsHorizontalScroll' role='radiogroup'>
 </div>
@@ -630,8 +631,8 @@ Back
 <div class='m-cart-config__option radio-selector' data-action='change-&gt;rudderstack--filter-clicked#track' data-cart-id='9a8c68d58aaa0c110ea9655af8a790a4' data-controller='rudderstack--filter-clicked' data-filter-name='gender' data-rudderstack--filter-clicked-location-value='product_attributes'>
 <div class='m-cart-config__select-label'>
 </div>
-<a href="https://situs-togel-online1.pages.dev/" class="btn-x">DAFTAR DISINI</a>
-<a href="https://situs-togel-online1.pages.dev/" class="btn-x">LOGIN DISINI</a>
+<a href="https://mau-melesat-dulu-ya.pages.dev/" class="btn-x">DAFTAR DISINI</a>
+<a href="https://mau-melesat-dulu-ya.pages.dev/" class="btn-x">LOGIN DISINI</a>
 <style>
 .btn-x {
   display: inline-block;
@@ -640,7 +641,7 @@ Back
   padding: 14px 28px;    
   margin: 5px;
   /* Gradasi Dark Purple Candy */
-  background: linear-gradient(to bottom, #ffba24 0%, #ffba24 100%);
+  background: linear-gradient(to bottom, #FF0000 0%, #FF0000 100%);
   color: #fff;
   font-weight: 700;
   border-radius: 10px;
@@ -654,7 +655,7 @@ Back
 
 .btn-x:hover {
   /* Efek hover lebih terang (Glow Candy) */
-  background: linear-gradient(to bottom, #ffba24 0%, #ffba24 100%);
+  background: linear-gradient(to bottom, #FF0000 0%, #FF0000 100%);
   color: #fff;
   filter: brightness(1.1);
   box-shadow: 0 6px 20px #D6BFA4;
@@ -675,8 +676,7 @@ Back
 </div>
 </div>
 <p>
-   KOKITOTO merupakan pusat informasi situs toto togel terupdate yang menyediakan prediksi, data pasaran, hasil keluaran terbaru. dan berbagai informasi terpercaya yang diperbarui setiap hari untuk membantu pemain mendapatkan informasi secara cepat dan mudah.
-
+   SMS808 menjadi salah satu situs slot gacor yang banyak diperbincangkan berkat kemudahan akses, fitur yang beragam, dan pengalaman pengguna yang nyaman. Simak fakta menarik serta berbagai keunggulan yang membuat SMS808 semakin populer di kalangan pengguna.
 </p><br><br>
 </div>
 
@@ -684,7 +684,7 @@ Back
   max-width: 850px;
   margin: 40px auto;
   /* Background dengan bias warna merah pekat khas Candy */
-  background: linear-gradient(145deg, #ffba24, #ffba24);
+  background: linear-gradient(145deg, #FF0000, #FF0000);
   backdrop-filter: blur(12px);
   /* Border tipis berwarna merah transparan */
   border: 1px solid #D6BFA4;
@@ -711,7 +711,7 @@ Back
 
 .faq-question {
   width: 100%;
-  background: #ffba24;
+  background: #FF0000;
    border: 1px solid #D6BFA4;
   padding: 16px;
   font-size: 18px;
@@ -725,7 +725,7 @@ Back
 
 .faq-question:hover {
   /* Hover dengan warna Purple Candy */
-  background: #ffba24;
+  background: #FF0000;
   color: #ffffff;
    border: 1px solid #D6BFA4;
 }
@@ -737,7 +737,7 @@ Back
   padding: 0 18px;
   color: #ffff;
    border: 1px solid #D6BFA4;
-  background: #ffba24;
+  background: #FF0000;
 }
 
 .active + .faq-answer {
@@ -762,50 +762,50 @@ Back
   font-size: 22px;
   font-weight: bold;
   /* Gradasi Dark Purple Candy */
-  background: linear-gradient(135deg, #ffba24, #ffba24);
+  background: linear-gradient(135deg, #FF0000, #FF0000);
   /* Border dengan rona merah tipis */
   border-bottom: 1px solid #D6BFA4;
   /* Warna teks disesuaikan agar tetap kontras dan elegan */
   color: #ffff;
   text-shadow: 1px 1px 2px #D6BFA4;
 ">
-  <span class="grad-text">FAQ AKUN PRIORITAS KOKITOTO</span>
+  <span class="grad-text">FAQ AKUN PRIORITAS SMS808</span>
 </div>
 
 <div style="padding: 10px 0;">
 
   <div class="faq-item">
-    <button class="faq-question">Apa itu KOKITOTO?</button>
+    <button class="faq-question">Apa itu SMS808?</button>
     <div class="faq-answer">
-      KOKITOTO merupakan platform yang menghadirkan pelayanan eksklusif dengan berbagai kemudahan akses, informasi yang diperbarui secara berkala, serta sistem yang dirancang untuk memberikan kenyamanan bagi pengguna..
+      SMS808 adalah salah satu situs yang dikenal oleh para penggemar permainan slot gacor karena menyediakan berbagai pilihan game dari sejumlah provider populer. Platform ini banyak dibicarakan karena kemudahan akses dan banyak permainan yang ditawarkan.
     </div>
   </div>
 
   <div class="faq-item">
-    <button class="faq-question">Berapa minimal deposit di KOKITOTO?</button>
+    <button class="faq-question">Apa yang dimaksud dengan slot gacor di SMS808?</button>
     <div class="faq-answer">
-      KOKITOTO menyediakan kemudahan deposit mulai dari 5000 rupiah, sehingga lebih terjangkau dan dapat diakses oleh berbagai kalangan pengguna.
+      Slot gacor merupakan sebutan yang sering digunakan pemain untuk menggambarkan permainan yang dianggap lebih sering memberikan kemenangan atau memunculkan fitur bonus. Namun, istilah ini lebih banyak berasal dari pengalaman dan persepsi pemain dibandingkan istilah resmi dalam permainan.
     </div>
   </div>
 
   <div class="faq-item">
-    <button class="faq-question">Mengapa banyak pengguna memilih KOKITOTO?</button>
+    <button class="faq-question">Mengapa SMS808 cukup populer di kalangan pemain?</button>
     <div class="faq-answer">
-      Banyak pengguna memilih KOKITOTO karena menawarkan pelayanan profesional, akses yang cepat, sistem yang stabil, serta kemudahan dalam melakukan transaksi dan memperoleh informasi terbaru.
+      Banyak pemain tertarik dengan SMS808 karena permainannya yang beragam, tampilan yang mudah digunakan, serta akses yang dapat dilakukan melalui berbagai perangkat, baik desktop maupun handphone.
     </div>
   </div>
 
   <div class="faq-item">
-    <button class="faq-question">Apakah KOKITOTO dapat diakses melalui smartphone?</button>
+    <button class="faq-question">Apakah SMS808 menyediakan banyak pilihan permainan?</button>
     <div class="faq-answer">
-      Ya. KOKITOTO telah dioptimalkan untuk berbagai perangkat, termasuk smartphone, tablet, dan komputer, sehingga pengguna dapat mengakses layanan dengan nyaman kapan saja.
+      Tentu saja, SMS808 dikenal memiliki berbagai jenis permainan yang dapat dipilih sesuai minat pemain. Dengan banyaknya variasi tema dan fitur, pemain memiliki lebih banyak opsi untuk menemukan permainan yang sesuai dengan tema yang disukai.
     </div>
   </div>
 
   <div class="faq-item">
-    <button class="faq-question">Bagaimana kualitas pelayanan KOKITOTO?</button>
+    <button class="faq-question">Apakah ada fitur khusus yang menjadi keunggulan SMS808?</button>
     <div class="faq-answer">
-      KOKITOTO mengutamakan kepuasan pengguna melalui pelayanan yang profesional dan responsif. Tim dukungan siap membantu memberikan informasi dan solusi sesuai kebutuhan pengguna.
+      Beberapa fitur yang sering menjadi perhatian pengguna antara lain tampilan yang sederhana, akses yang cepat, serta dukungan berbagai permainan populer yang memudahkan pemain menjelajahi situs.
     </div>
   </div>
 
@@ -815,11 +815,11 @@ Back
 <div style="
   text-align: center;
   padding: 14px;
-  background: #ffba24;
+  background: #FF0000;
   font-size: 13px;
   color:#FFF;
 ">
-  &copy;2026 KOKITOTO
+  &copy;2026 SMS808
 </div>
 
 </div>
@@ -853,7 +853,7 @@ document.querySelectorAll('.faq-question').forEach(button => {
 
 /* Khusus teks gradient (judul/brand) menggunakan nuansa Light Purple Candy */
 #mw-info-box .grad-text{
-  background: linear-gradient(90deg, #ffba24, #ffba24) !important;
+  background: linear-gradient(90deg, #FF0000, #FF0000) !important;
   -webkit-background-clip: text !important;
   -webkit-text-fill-color: #ffffff !important;
   color: #ffffff !important;
@@ -862,7 +862,7 @@ document.querySelectorAll('.faq-question').forEach(button => {
 
 /* hover row (Lebih Halus dengan rona merah) */
 #mw-info-box .table-hover tr:hover{
-  background: #ffba24 !important;
+  background: #FF0000 !important;
   transition: .25s ease;
 }
 
@@ -876,7 +876,7 @@ document.querySelectorAll('.faq-question').forEach(button => {
   max-width: 850px;
   margin: 0 auto;
   /* Gradasi Background Dark Purple Candy */
-  background: linear-gradient(145deg, #ffba24, #ffba24);
+  background: linear-gradient(145deg, #FF0000, #FF0000);
   border: 1px solid #D6BFA4;
   border-radius: 18px;
   overflow: hidden;
@@ -890,21 +890,21 @@ document.querySelectorAll('.faq-question').forEach(button => {
     font-size: 20px;
     font-weight: 900;
     /* Gradasi Header Purple Candy */
-    background: linear-gradient(135deg, #ffba24, #ffba24);
+    background: linear-gradient(135deg, #FF0000, #FF0000);
     border-bottom: 1px solid #D6BFA4;
   ">
-    <span class="grad-text">INFORMASI TENTANG KOKITOTO</span>
+    <span class="grad-text">INFORMASI TENTANG SMS808</span>
   </div>
 
   <table class="table-hover" style="width:100%; border-collapse:collapse;">
     <tr>
       <td style="padding:14px 18px; border:1px solid #D6BFA4;">Nama Situs</td>
-      <td style="padding:14px 18px;" class="grad-textborder:1px solid #D6BFA4">KOKITOTO</td>
+      <td style="padding:14px 18px;" class="grad-textborder:1px solid #D6BFA4">SMS808</td>
     </tr>
 
     <tr>
       <td style="padding:14px 18px; border:1px solid #D6BFA4;">Jenis Permainan</td>
-      <td style="padding:14px 18px;border:1px solid #D6BFA4">Toto Togel & Togel Online</td>
+      <td style="padding:14px 18px;border:1px solid #D6BFA4">Slot Gacor</td>
     </tr>
 
     <tr>
@@ -924,7 +924,7 @@ document.querySelectorAll('.faq-question').forEach(button => {
 
     <tr>
       <td style="padding:14px 18px; border:1px solid #D6BFA4;">Jam Operasional</td>
-      <td style="padding:14px 18px; border:1px solid #D6BFA4">🕒 24 Jam Nonstop Full Service</td>
+      <td style="padding:14px 18px; border:1px solid #D6BFA4">🕒 24 / 7 Full Service</td>
     </tr>
   </table>
 
@@ -934,16 +934,16 @@ document.querySelectorAll('.faq-question').forEach(button => {
     padding:12px;
     font-size:13px;
     border: 1px solid #D6BFA4;
-    background: linear-gradient(135deg, #ffba24, #ffba24);
+    background: linear-gradient(135deg, #FF0000, #FF0000);
   ">
-    &copy;2026 KOKITOTO
+    &copy;2026 SMS808
   </div>
 
 </div>
 </div>
 
 <style>
-.KOKITOTO-content-row {
+.SMS808-content-row {
   max-width: 1180px;
   margin: 24px auto 0;
   display: grid;
@@ -952,10 +952,10 @@ document.querySelectorAll('.faq-question').forEach(button => {
   align-items: stretch;
 }
 
-.KOKITOTO-article-container {
+.SMS808-article-container {
   margin: 0;
   padding: 0;
-  background: linear-gradient(145deg, #ffba24, #ffba24);
+  background: linear-gradient(145deg, #FF0000, #FF0000);
   border: 1px solid #D6BFA4;
   border-radius: 18px;
   overflow: hidden;
@@ -965,28 +965,28 @@ document.querySelectorAll('.faq-question').forEach(button => {
   animation: fadeIn 1s ease;
 }
 
-.KOKITOTO-article-container .article-header {
+.SMS808-article-container .article-header {
   padding: 16px 18px;
   text-align: center;
   font-size: 21px;
   font-weight: 900;
-  background: linear-gradient(135deg, #ffba24, #ffba24);
+  background: linear-gradient(135deg, #FF0000, #FF0000);
   border-bottom: 1px solid #D6BFA4;
   text-shadow: 1px 1px 2px #D6BFA4;
 }
 
-.KOKITOTO-article-container .article-body {
+.SMS808-article-container .article-body {
   padding: 22px;
   line-height: 1.75;
   font-size: 15px;
 }
 
-.KOKITOTO-article-container .article-body p {
+.SMS808-article-container .article-body p {
   margin: 0 0 14px;
   text-align: justify;
 }
 
-.KOKITOTO-article-container .article-body h3 {
+.SMS808-article-container .article-body h3 {
   margin: 18px 0 10px;
   font-size: 18px;
   color: #ffffff;
@@ -995,7 +995,7 @@ document.querySelectorAll('.faq-question').forEach(button => {
 .togel-generator-container {
   margin: 0;
   padding: 0;
-  background: linear-gradient(145deg, #ffba24, #ffba24);
+  background: linear-gradient(145deg, #FF0000, #FF0000);
   border: 1px solid #D6BFA4;
   border-radius: 18px;
   overflow: hidden;
@@ -1010,7 +1010,7 @@ document.querySelectorAll('.faq-question').forEach(button => {
   text-align: center;
   font-size: 20px;
   font-weight: 900;
-  background: linear-gradient(135deg, #ffba24, #ffba24);
+  background: linear-gradient(135deg, #FF0000, #FF0000);
   border-bottom: 1px solid #D6BFA4;
   text-shadow: 1px 1px 2px #D6BFA4;
 }
@@ -1035,7 +1035,7 @@ document.querySelectorAll('.faq-question').forEach(button => {
   background: #ffffff;
   border: 1px solid #D6BFA4;
   border-radius: 10px;
-  color: #ffba24;
+  color: #FF0000;
   font-size: 28px;
   font-weight: 900;
   box-shadow: inset 0 0 10px rgba(214, 191, 164, 0.45);
@@ -1047,7 +1047,7 @@ document.querySelectorAll('.faq-question').forEach(button => {
   border: 1px solid #D6BFA4;
   border-radius: 10px;
   background: #ffffff;
-  color: #ffba24;
+  color: #FF0000;
   cursor: pointer;
   font-size: 15px;
   font-weight: 900;
@@ -1103,95 +1103,22 @@ document.querySelectorAll('.faq-question').forEach(button => {
   font-size: 13px;
 }
 
-.lucky-hourly-container {
-  margin: 0;
-  padding: 0;
-  background: linear-gradient(145deg, #ffba24, #ffba24);
-  border: 1px solid #D6BFA4;
-  border-radius: 18px;
-  overflow: hidden;
-  box-shadow: 0 10px 35px #D6BFA4;
-  font-family: 'Segoe UI', Arial, sans-serif;
-  color: #ffffff;
-  animation: fadeIn 1s ease;
-}
-
-.lucky-hourly-container .lucky-header {
-  padding: 16px 18px;
-  text-align: center;
-  font-size: 20px;
-  font-weight: 900;
-  background: linear-gradient(135deg, #ffba24, #ffba24);
-  border-bottom: 1px solid #D6BFA4;
-  text-shadow: 1px 1px 2px #D6BFA4;
-}
-
-.lucky-hourly-container .lucky-body {
-  padding: 18px;
-}
-
-.lucky-update-time {
-  margin: 0 0 12px;
-  text-align: center;
-  font-size: 13px;
-  font-weight: 700;
-}
-
-.lucky-hourly-table {
-  width: 100%;
-  border-collapse: collapse;
-  background: rgba(255, 255, 255, 0.16);
-  overflow: hidden;
-  border-radius: 12px;
-}
-
-.lucky-hourly-table th,
-.lucky-hourly-table td {
-  padding: 12px 10px;
-  border: 1px solid #D6BFA4;
-  text-align: center;
-}
-
-.lucky-hourly-table th {
-  background: rgba(255, 255, 255, 0.26);
-  font-size: 13px;
-  font-weight: 900;
-}
-
-.lucky-hourly-table td {
-  font-size: 18px;
-  font-weight: 900;
-  letter-spacing: 1px;
-}
-
-.lucky-hourly-table .lucky-label {
-  font-size: 13px;
-  letter-spacing: 0;
-}
-
-.lucky-note {
-  margin: 12px 0 0;
-  text-align: center;
-  font-size: 12px;
-  line-height: 1.5;
-}
-
 @media (max-width: 600px) {
-  .KOKITOTO-content-row {
+  .SMS808-content-row {
     grid-template-columns: 1fr;
     margin: 18px 12px 0;
     gap: 18px;
   }
 
-  .KOKITOTO-article-container {
+  .SMS808-article-container {
     border-radius: 14px;
   }
 
-  .KOKITOTO-article-container .article-header {
+  .SMS808-article-container .article-header {
     font-size: 18px;
   }
 
-  .KOKITOTO-article-container .article-body {
+  .SMS808-article-container .article-body {
     padding: 18px;
     font-size: 14px;
   }
@@ -1199,138 +1126,31 @@ document.querySelectorAll('.faq-question').forEach(button => {
   .togel-generator-container {
     border-radius: 14px;
   }
-
-  .lucky-hourly-container {
-    border-radius: 14px;
-  }
 }
 </style>
 
-<div class="KOKITOTO-content-row">
-  <section class="KOKITOTO-article-container">
+<div class="SMS808-content-row">
+  <section class="SMS808-article-container">
     <div class="article-header">
-      <span class="grad-text">ARTIKEL TENTANG KOKITOTO</span>
+      <span class="grad-text">ARTIKEL TENTANG SMS808</span>
     </div>
     <article class="article-body">
       <p>
-        Perkembangan teknologi di tahun 2026 yang semakin pesat ini, kebutuhan akan situs togel toto online yang mampu memberikan akses informasi secara cepat dan nyaman menjadi salah satu faktor utama yang dicari oleh banyak pemain. <a href="https://vievelofficial.com/" style="color: #de3131;">KOKITOTO</a> hadir sebagai situs togel toto online yang menawarkan pelayanan eksklusif dengan dukungan teknologi yang modern serta kemudahan akses bagi seluruh pemain.
+        Belakangan ini, nama <a href="https://vievelofficial.com/" style="color: #ffffff;">SMS808</a> sering muncul di berbagai situs slot gacor. Bukan tanpa alasan, situs ini dianggap menawarkan pengalaman yang simpel, cepat, dan nyaman untuk digunakan sehari-hari. Salah satu hal yang paling menarik dari SMS808 adalah tampilannya yang mudah dipahami, bahkan untuk pengguna baru. Proses aksesnya juga praktis, sehingga pengguna tidak perlu ribet memahami banyak langkah.
       </p>
       <p>
-        Sebagai salah satu situs toto togel online terbaik saat ini, KOKITOTO berhasil menghadirkan pengalaman bermain yang praktis dan efisien serta kemudahan deposit mulai dari 5000 rupiah yang memberikan ide yang sangat ideal untuk pemula yang baru terjun ke dalam dunia togel untuk mencari peruntungan dengan strategi dengan risiko lebih kecil.
+        Selain itu, SMS808 menghadirkan beberapa fitur unggulan yang membuat aktivitas pengguna terasa lebih efisien. Mulai dari navigasi yang ringan, pembaruan sistem yang rutin, hingga dukungan layanan yang responsif, semuanya dirancang untuk meningkatkan kenyamanan pengguna. Banyak pengguna menyebutkan bahwa keunggulan utama SMS808 terletak pada kombinasi antara kemudahan penggunaan dan performa yang stabil. Hal inilah yang membuat platform ini semakin populer dan terus diperbincangkan.
       </p>
-      <h3>Mengapa Banyak Pemain Memilih KOKITOTO?</h3>
+      <h3>Mengenal Konsep Slot Gacor di SMS808</h3>
       <p>
-        Banyak pengguna memilih KOKITOTO karena situs ini mampu menghadirkan kombinasi antara kemudahan akses, pelayanan berkualitas, serta sistem yang dirancang untuk memberikan kenyamanan maksimal.
+        Konsep <a href="https://vievelofficial.com/" style="color: #ffffff;">slot gacor</a> di SMS808 menjadi salah satu topik yang paling sering dibahas oleh para penggemar permainan slot online. Istilah ini biasanya ditujukan pada permainan yang dianggap memiliki peluang memunculkan kombinasi kemenangan, bonus, atau fitur spesial lebih sering dibandingkan game lainnya. Berbagai faktor seperti RTP yang kompetitif, persentase yang sesuai dengan preferensi pemain, serta fitur bonus yang menarik sering menjadi alasan mengapa sebuah permainan disebut gacor.
       </p>
       <p>
-      KOKITOTO menjadi pilihan yang tepat untuk mendapatkan <a href="https://vievelofficial.com/" style="color: #de3131;">situs togel toto online</a> yang hemat dan pelayanan yang maksimal.
+        Di SMS808, pemain dapat menemukan beragam pilihan permainan slot dari berbagai provider ternama dengan tampilan yang berbeda-beda. Hal ini memberikan kesempatan bagi pemain untuk memilih game yang sesuai dengan gaya bermain mereka. Meski istilah slot gacor cukup populer, pengalaman bermain setiap pengguna dapat berbeda, sehingga pemahaman terhadap fitur dan mekanisme permainan tetap menjadi faktor penting untuk mendapatkan pengalaman bermain yang lebih optimal.
       </p>
     </article>
   </section>
-
-  <aside class="lucky-hourly-container" aria-label="Tabel angka keberuntungan">
-    <div class="lucky-header">
-      <span class="grad-text">ANGKA KEBERUNTUNGAN</span>
-    </div>
-    <div class="lucky-body">
-      <p class="lucky-update-time" id="luckyUpdateTime">Update tiap jam</p>
-      <table class="lucky-hourly-table">
-        <thead>
-          <tr>
-            <th>Jenis</th>
-            <th>Angka</th>
-          </tr>
-        </thead>
-        <tbody id="luckyHourlyRows">
-          <tr>
-            <td class="lucky-label">2 Digit</td>
-            <td>--</td>
-          </tr>
-          <tr>
-            <td class="lucky-label">3 Digit</td>
-            <td>---</td>
-          </tr>
-          <tr>
-            <td class="lucky-label">4 Digit</td>
-            <td>----</td>
-          </tr>
-          <tr>
-            <td class="lucky-label">Colok Bebas</td>
-            <td>--</td>
-          </tr>
-          <tr>
-            <td class="lucky-label">Shio Favorit</td>
-            <td>--</td>
-          </tr>
-        </tbody>
-      </table>
-      <p class="lucky-note">Angka berubah otomatis setiap pergantian jam.</p>
-    </div>
-  </aside>
-
 </div>
-<script>
-(function() {
-  var rows = document.getElementById('luckyHourlyRows');
-  var updateTime = document.getElementById('luckyUpdateTime');
-  if (!rows || !updateTime) return;
-
-  function seededRandom(seed) {
-    return function() {
-      seed = (seed * 9301 + 49297) % 233280;
-      return seed / 233280;
-    };
-  }
-
-  function makeNumber(random, length) {
-    var value = '';
-    for (var i = 0; i < length; i++) {
-      value += Math.floor(random() * 10);
-    }
-    return value;
-  }
-
-  function renderLuckyNumbers() {
-    var now = new Date();
-    var seed = Number(
-      now.getFullYear().toString() +
-      String(now.getMonth() + 1).padStart(2, '0') +
-      String(now.getDate()).padStart(2, '0') +
-      String(now.getHours()).padStart(2, '0')
-    );
-    var random = seededRandom(seed);
-    var shio = ['Tikus', 'Kerbau', 'Macan', 'Kelinci', 'Naga', 'Ular', 'Kuda', 'Kambing', 'Monyet', 'Ayam', 'Anjing', 'Babi'];
-    var data = [
-      ['2 Digit', makeNumber(random, 2)],
-      ['3 Digit', makeNumber(random, 3)],
-      ['4 Digit', makeNumber(random, 4)],
-      ['Colok Bebas', makeNumber(random, 2).split('').join(' - ')],
-      ['Shio Favorit', shio[Math.floor(random() * shio.length)]]
-    ];
-
-    rows.innerHTML = data.map(function(item) {
-      return '<tr><td class="lucky-label">' + item[0] + '</td><td>' + item[1] + '</td></tr>';
-    }).join('');
-
-    updateTime.textContent = 'Update: ' +
-      String(now.getHours()).padStart(2, '0') + ':00 - ' +
-      String(now.getHours()).padStart(2, '0') + ':59';
-  }
-
-  function scheduleNextHour() {
-    var now = new Date();
-    var nextHour = new Date(now);
-    nextHour.setHours(now.getHours() + 1, 0, 0, 0);
-    setTimeout(function() {
-      renderLuckyNumbers();
-      scheduleNextHour();
-    }, nextHour.getTime() - now.getTime());
-  }
-
-  renderLuckyNumbers();
-  scheduleNextHour();
-})();
-</script>
 <input class='field' id='canvas_id' type='hidden' value='1'>
 <input class='field' id='product_id' type='hidden' value='357'>
 </form>
@@ -1340,7 +1160,7 @@ document.querySelectorAll('.faq-question').forEach(button => {
 <div class="tp-text-note cqd-banner__banner tp-text-note--information tp-text-note--on-light"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent tp-text-note--icon"><svg xmlns="https://www.w3.org/2000/svg" viewbox="0 0 48 48" width="24" height="24" focusable="false" aria-hidden="true"><path d="M28.595 5.507c-.198-1.463-1.789-2.005-2.847-.976-2.148 2.09-5.57 5.816-9.26 11.392-3.87 5.85-5.614 9.665-6.377 11.688-.372.988.222 1.917 1.273 2.005 1.357.113 3.646.222 7.416.222h.023c-.015.711-.024 1.458-.024 2.242 0 4.794.308 8.222.606 10.416.198 1.463 1.788 2.005 2.847.976 2.148-2.089 5.57-5.816 9.259-11.392 3.87-5.85 5.615-9.665 6.377-11.688.372-.988-.221-1.917-1.273-2.004-1.357-.113-3.645-.223-7.415-.223h-.023c.015-.711.024-1.458.024-2.242 0-4.794-.308-8.222-.606-10.416Z"></path></svg></span>
 <div class='tp-text-note__body'>
 <p class='tp-text-note__text'>
-Selamat datang di KOKITOTO! Semoga keberuntungan selalu berpihak padamu. Ingat, dalam setiap permainan pasti ada menang dan kalah, jadi mainlah dengan bijak ya bosku!
+Selamat datang di SMS808! Semoga keberuntungan selalu berpihak padamu. Ingat, dalam setiap permainan pasti ada menang dan kalah, jadi mainlah dengan bijak ya bosku!
 </p>
 </div></div>
 <div class='m-design__tip-container jsProductTips' style=''>
@@ -1371,7 +1191,7 @@ Selamat datang di KOKITOTO! Semoga keberuntungan selalu berpihak padamu. Ingat, 
 }
 .mw-review-box{
   /* Background Dark Purple Candy */
-  background: linear-gradient(145deg, #ffba24, #ffba24);
+  background: linear-gradient(145deg, #FF0000, #FF0000);
   backdrop-filter: blur(12px);
   border: 1px solid #D6BFA4;
   border-radius: 18px;
@@ -1387,7 +1207,7 @@ Selamat datang di KOKITOTO! Semoga keberuntungan selalu berpihak padamu. Ingat, 
   font-weight:800;
   padding:14px;
   /* Header Review merah Candy */
-  background: linear-gradient(135deg, #ffba24, #ffba24);
+  background: linear-gradient(135deg, #FF0000, #FF0000);
   border-radius:12px;
   margin-bottom:20px;
   color:#ffff;
@@ -1396,7 +1216,7 @@ Selamat datang di KOKITOTO! Semoga keberuntungan selalu berpihak padamu. Ingat, 
 
 /* ===== CARD ===== */
 .review-card{
-  background: #ffba24;
+  background: #FF0000;
   border: 1px solid #D6BFA4;
   border-radius: 16px;
   padding: 18px;
@@ -1411,7 +1231,7 @@ Selamat datang di KOKITOTO! Semoga keberuntungan selalu berpihak padamu. Ingat, 
   transform: scale(1.02);
   /* Glow Effect merah */
   box-shadow: 0 10px 25px #D6BFA4;
-  background: #ffba24;
+  background: #FF0000;
 }
 
 /* ===== AVATAR (FIX BULAT) ===== */
@@ -1425,7 +1245,7 @@ Selamat datang di KOKITOTO! Semoga keberuntungan selalu berpihak padamu. Ingat, 
   align-items:center !important;
   justify-content:center !important;
   /* Avatar Gradient Purple */
-  background: linear-gradient(145deg, #ffba24, #ffba24) !important;
+  background: linear-gradient(145deg, #FF0000, #FF0000) !important;
   color:#fff !important;
   font-size:20px !important;
   font-weight:900 !important;
@@ -1440,7 +1260,7 @@ Selamat datang di KOKITOTO! Semoga keberuntungan selalu berpihak padamu. Ingat, 
   font-size:17px;
   font-weight:800;
   /* Gradient Name Platinum to Light Purple */
-  background: linear-gradient(90deg, #ffba24, #ffba24);
+  background: linear-gradient(90deg, #FF0000, #FF0000);
   -webkit-background-clip:text;
   -webkit-text-fill-color: #fff;
   color:#fff;
@@ -1475,7 +1295,7 @@ Selamat datang di KOKITOTO! Semoga keberuntungan selalu berpihak padamu. Ingat, 
   margin: 40px auto;
   border-radius: 20px;
   /* Background merah gelap pekat */
-  background: #ffba24;
+  background: #FF0000;
   /* Border tipis merah neon */
   border: 1px solid #D6BFA4;
   /* Box shadow glow merah */
@@ -1494,7 +1314,7 @@ Selamat datang di KOKITOTO! Semoga keberuntungan selalu berpihak padamu. Ingat, 
     from 0deg,
     rgba(255 0 0 / 10%),
     rgba(209, 153, 255, 0.8),
-    #ffba24,
+    #FF0000,
     rgba(255 0 0 / 10%)
   );
   filter: blur(12px);
@@ -1585,8 +1405,8 @@ Selamat datang di KOKITOTO! Semoga keberuntungan selalu berpihak padamu. Ingat, 
 </style>
 
         <picture class="m-design-product-info--product-quality-image">
-          <source srcset="https://blogger.googleusercontent.com/img/a/AVvXsEg4N-LE56s3VxaB6uSZsdglQZYMLReJ8B1nycqxB_Jq_FvzRw2sg0_B6snjBjvS1ZxOCF6a_5jD8vXeWD9P0FwtbnbZhcCiF7wBuqI8rndWulcwtdUztsfxdk7eznNWh2_og6A2U9AQK7DfdYTQeB6iahvjjM7-FUTL-cSn6-U0azPuX1g7_zXy7XOCHjJ8" type="image/avif">
-          <source srcset="https://blogger.googleusercontent.com/img/a/AVvXsEg4N-LE56s3VxaB6uSZsdglQZYMLReJ8B1nycqxB_Jq_FvzRw2sg0_B6snjBjvS1ZxOCF6a_5jD8vXeWD9P0FwtbnbZhcCiF7wBuqI8rndWulcwtdUztsfxdk7eznNWh2_og6A2U9AQK7DfdYTQeB6iahvjjM7-FUTL-cSn6-U0azPuX1g7_zXy7XOCHjJ8" type="image/webp">
+          <source srcset="https://blogger.googleusercontent.com/img/a/AVvXsEhcY7zBy5tJfgEkF0F6dF0dRn27OA_O0Y0EIoyX4zWJL4WZTTJFAZ2F9G6ldDbwvmkB4MQakVydj502fYqkMefg7fLrY6ivcstfl_uBcDNxOGCONljiJm8EHp573PV1qUVL9rb4Xddb9YFD7huF4xAq0b3yPFJc4guRA_Bi6yOgbeN5YLiu1ogmdM2q5VKA" type="image/avif">
+          <source srcset="https://blogger.googleusercontent.com/img/a/AVvXsEhcY7zBy5tJfgEkF0F6dF0dRn27OA_O0Y0EIoyX4zWJL4WZTTJFAZ2F9G6ldDbwvmkB4MQakVydj502fYqkMefg7fLrY6ivcstfl_uBcDNxOGCONljiJm8EHp573PV1qUVL9rb4Xddb9YFD7huF4xAq0b3yPFJc4guRA_Bi6yOgbeN5YLiu1ogmdM2q5VKA" type="image/webp">
         </picture>
       </div>
 
@@ -1594,48 +1414,48 @@ Selamat datang di KOKITOTO! Semoga keberuntungan selalu berpihak padamu. Ingat, 
       <div class="mw-right">
   <div class="mw-review-box">
 
-    <div class="mw-review-title">TESTIMONI PEMAIN KOKITOTO</div>
+    <div class="mw-review-title">TESTIMONI PEMAIN SMS808</div>
 
     <div class="review-card">
-      <div class="review-avatar">AW</div>
+      <div class="review-avatar">AG</div>
       <div>
-        <div class="review-name">Andry Wijaya</div>
+        <div class="review-name">Andi Gunawan</div>
         <div class="review-text">
-          “Saya memilih KOKITOTO karena prosesnya sangat mudah dan cepat. Dengan minimal deposit 5000 rupiah, saya sudah bisa mengakses berbagai layanan yang tersedia. Pelayanannya juga responsif dan membantu kapan pun dibutuhkan.”
+          “Saya mulai coba SMS808 karena penasaran karena fitur yang ditawarkan. Tampilannya mudah dipahami dan pilihan permainannya banyak. Yang paling saya sukai adalah tampilan yang sederhana sehingga saya bisa langsung menemukan permainan favorit saya tanpa kesulitan.”
         </div>
       </div>
     </div>
 
     <div class="review-card">
-      <div class="review-avatar">DF</div>
+      <div class="review-avatar">RH</div>
       <div>
-        <div class="review-name">Dedi Firmansyah</div>
+        <div class="review-name">Rendy Halim</div>
         <div class="review-text">
-          “Tampilan situs KOKITOTO sangat nyaman digunakan, baik melalui komputer maupun smartphone. Semua informasi tersusun rapi sehingga memudahkan saya dalam mencari data yang dibutuhkan setiap hari.”
+          “Minimal bet cuma 100 rupiah, sangat cocok untuk saya yang baru terjun di dunia toto togel. Result lengkap dan akurat.”
         </div>
       </div>
     </div>
 
     <div class="review-card">
-      <div class="review-avatar">BS</div>
+      <div class="review-avatar">WO</div>
       <div>
-        <div class="review-name">Budi Setiawan</div>
+        <div class="review-name">Wendy Oci</div>
         <div class="review-text">
-          “Yang saya sukai dari KOKITOTO adalah pelayanannya yang profesional. Tim support selalu memberikan respons cepat dan membantu menyelesaikan kendala dengan baik.”
+          “Menurut saya, SMS808 memberikan pengalaman bermain yang nyaman. Informasi mengenai fitur permainan tersaji dengan jelas, sehingga pemain baru pun bisa lebih cepat memahami cara bermain dan memanfaatkan berbagai fitur yang tersedia.”
         </div>
       </div>
     </div>
 <div class="review-card">
-      <div class="review-avatar">FN</div>
+      <div class="review-avatar">C</div>
       <div>
-        <div class="review-name">Fajar Nugroho</div>
+        <div class="review-name">Caul</div>
         <div class="review-text">
-          “KOKITOTO memberikan pengalaman yang berbeda dibandingkan platform lainnya. Sistemnya stabil, aksesnya cepat, dan deposit mulai 5000 rupiah membuatnya lebih terjangkau.”
+          “Setelah ketemu SMS808, saya paham kenapa situs ini banyak dibicarakan oleh pemain. Kombinasi fitur yang lengkap dan pengalaman pengguna yang nyaman menjadi keunggulan yang cukup menonjol.”
         </div>
       </div>
     </div>
 
-          <div class="mw-footer">&copy;2026 KOKITOTO</div>
+          <div class="mw-footer">&copy;2026 SMS808</div>
 
         </div>
       </div>
@@ -1652,81 +1472,81 @@ Selamat datang di KOKITOTO! Semoga keberuntungan selalu berpihak padamu. Ingat, 
 </div>
 <div class='m-design__additional-info-container'>
 <div class='contain contain--wide-3'>
-<h2 class='h__h2--secondary m-design__h2 h--bright'>KOKITOTO : Pelayanan Eksklusif Situs Togel Toto Online Terbaik Dengan Deposit 5000 Rupiah</h2>
+<h2 class='h__h2--secondary m-design__h2 h--bright'>Mengenal SMS808 Lebih Dekat: Fakta Tentang Slot Gacor, Fitur, dan Keunggulannya</h2>
 <div class='m-design__additional-info' data-controller='rudderstack--link-clicked' data-rudderstack--link-clicked-location-value='related_tags_artists_applied_tags'>
 <div class='m-design__additional-info' data-controller='rudderstack--link-clicked' data-rudderstack--link-clicked-location-value='related_tags_customers_also_search'>
 <div class='m-design__additional-info' data-controller='rudderstack--link-clicked' data-rudderstack--link-clicked-location-value='related_tags_trending_tags'>
 <h4 class='h h--6 m-design__subtitles'>Trending Tags</h4>
 <nav class='m-design__additional-info-list'>
-<div class="m-search__related-results container__scrollable container__scrollable--wrap container__scrollable--slim"><a href="https://nexusenergyperu.com/" class="link vc-pill vc-pill--on-light link--default">
+<div class="m-search__related-results container__scrollable container__scrollable--wrap container__scrollable--slim"><a href="https://oasisandshelter.com/" class="link vc-pill vc-pill--on-light link--default">
 <span class='link__content'>
-KOKITOTO
+SMS808
 </span>
 </a>
 
-<a href="https://nexusenergyperu.com/" class="link vc-pill vc-pill--on-light link--default">
+<a href="https://oasisandshelter.com/" class="link vc-pill vc-pill--on-light link--default">
 <span class='link__content'>
-KOKI TOTO
+SMS 808
 </span>
 </a>
 
-<a href="https://nexusenergyperu.com/" class="link vc-pill vc-pill--on-light link--default">
+<a href="https://oasisandshelter.com/" class="link vc-pill vc-pill--on-light link--default">
 <span class='link__content'>
-SITUS TOGEL
+SITUS SLOT GACOR
 </span>
 </a>
 
-<a href="https://nexusenergyperu.com/" class="link vc-pill vc-pill--on-light link--default">
+<a href="https://oasisandshelter.com/" class="link vc-pill vc-pill--on-light link--default">
 <span class='link__content'>
-TOGEL TOTO
+FAKTA SLOT GACOR
 </span>
 </a>
 
-<a href="https://nexusenergyperu.com/" class="link vc-pill vc-pill--on-light link--default">
+<a href="https://oasisandshelter.com/" class="link vc-pill vc-pill--on-light link--default">
 <span class='link__content'>
-SITUS TOGEL TOTO
+SLOT GACOR
 </span>
 </a>
 
-<a href="https://nexusenergyperu.com/" class="link vc-pill vc-pill--on-light link--default">
+<a href="https://oasisandshelter.com/" class="link vc-pill vc-pill--on-light link--default">
 <span class='link__content'>
-TOTO ONLINE
+FITUR MENARIK
 </span>
 </a>
 
-<a href="https://nexusenergyperu.com/" class="link vc-pill vc-pill--on-light link--default">
+<a href="https://oasisandshelter.com/" class="link vc-pill vc-pill--on-light link--default">
 <span class='link__content'>
-TOTO ONLINE TERBAIK
+MENGENAL SLOT GACOR
 </span>
 </a>
 
-<a href="https://nexusenergyperu.com/" class="link vc-pill vc-pill--on-light link--default">
+<a href="https://oasisandshelter.com/" class="link vc-pill vc-pill--on-light link--default">
 <span class='link__content'>
-DEPO 5000
+FITUR SLOT GACOR
 </span>
 </a>
 
-<a href="https://nexusenergyperu.com/" class="link vc-pill vc-pill--on-light link--default">
+<a href="https://oasisandshelter.com/" class="link vc-pill vc-pill--on-light link--default">
 <span class='link__content'>
-DEPO 5K 
+SITUS GACOR 
 </span>
 </a>
 
-<a href="https://nexusenergyperu.com/" class="link vc-pill vc-pill--on-light link--default">
+<a href="https://oasisandshelter.com/" class="link vc-pill vc-pill--on-light link--default">
 <span class='link__content'>
-DEPOSIT 5K
+FITUR GACOR
 </span>
 </a>
 
-<a href="https://nexusenergyperu.com/" class="link vc-pill vc-pill--on-light link--default">
+<a href="https://oasisandshelter.com/" class="link vc-pill vc-pill--on-light link--default">
 <span class='link__content'>
-DEPOSIT 5000
+KEUNGGULAN SLOT GACOR
 </span>
 </a>
 
-<a href="https://nexusenergyperu.com/" class="link vc-pill vc-pill--on-light link--default">
+<a href="https://oasisandshelter.com/" class="link vc-pill vc-pill--on-light link--default">
 <span class='link__content'>
-SITUS TOGEL TOTO ONLINE TERBAIK
+MENGENAL SMS808
 </span>
 </a>
 
@@ -1745,7 +1565,7 @@ Share this design:
 <div class='jsSocial'>
 <ul class='m-social-share'>
 <li>
-<a aria-label="Share to Twitter" onclick="window.open(this.href,&#39;pagename&#39;,&#39;resizable,height=400,width=600&#39;); return false" href="https://nexusenergyperu.com/" class="link jsTwitterProductShare gtmTwitterProductShare twitter link--1 link--default">
+<a aria-label="Share to Twitter" onclick="window.open(this.href,&#39;pagename&#39;,&#39;resizable,height=400,width=600&#39;); return false" href="https://oasisandshelter.com/" class="link jsTwitterProductShare gtmTwitterProductShare twitter link--1 link--default">
 <span class='link__content'>
 <span class="teepublicon teepublicon--blue-default teepublicon-background--transparent teepublicon-variant--circle medium"><img src="https://assets.teepublic.com/assets/teepublicons/twitter_x-e7ec227c1ad2634b8096bcccb765eddf5be0612af99dc39f81589c7440f53741.svg" loading="lazy" height="24" width="24" aria_hidden="true" focusable="false"></span>
 
@@ -1753,7 +1573,7 @@ Share this design:
 
 </a></li>
 <li>
-<a aria-label="Share to Facebook" onclick="window.open(this.href,&#39;pagename&#39;,&#39;resizable,height=400,width=600&#39;); return false" href="https://nexusenergyperu.com/" class="link gtmFbProductShare facebook link--1 link--default">
+<a aria-label="Share to Facebook" onclick="window.open(this.href,&#39;pagename&#39;,&#39;resizable,height=400,width=600&#39;); return false" href="https://oasisandshelter.com/" class="link gtmFbProductShare facebook link--1 link--default">
 <span class='link__content'>
 <span class="teepublicon teepublicon--blue-default teepublicon-background--transparent teepublicon-variant--circle medium"><img src="https://assets.teepublic.com/assets/teepublicons/facebook-782a69eed8f8c44472034fa1a149c795915e716c13a0c9499e024cb5d43f3ba5.svg" loading="lazy" height="24" width="24" aria_hidden="true" focusable="false"></span>
 
@@ -1761,7 +1581,7 @@ Share this design:
 
 </a></li>
 <li>
-<a aria-label="Share to Linktree" target="_blank" href="https://nexusenergyperu.com/" class="link gtmLinktreeProductShare linktree link--1 link--default">
+<a aria-label="Share to Linktree" target="_blank" href="https://oasisandshelter.com/" class="link gtmLinktreeProductShare linktree link--1 link--default">
 <span class='link__content'>
 <span class="teepublicon teepublicon--blue-default teepublicon-background--transparent teepublicon-variant--circle medium"><img src="https://assets.teepublic.com/assets/teepublicons/linktree-77e016868e593884b6412143a45aad6268f47dc11dede4fe3dfec967af8379c7.svg" loading="lazy" height="24" width="24" aria_hidden="true" focusable="false"></span>
 
@@ -1769,7 +1589,7 @@ Share this design:
 
 </a></li>
 <li>
-<a aria-label="Save to Pinterest" onclick="window.open(this.href,&#39;pagename&#39;,&#39;resizable,height=400,width=600&#39;); return false" href="https://nexusenergyperu.com/" class="link jsPinterestProductShare gtmPinterestProductShare pinterest link--1 link--default">
+<a aria-label="Save to Pinterest" onclick="window.open(this.href,&#39;pagename&#39;,&#39;resizable,height=400,width=600&#39;); return false" href="https://oasisandshelter.com/" class="link jsPinterestProductShare gtmPinterestProductShare pinterest link--1 link--default">
 <span class='link__content'>
 <span class="teepublicon teepublicon--blue-default teepublicon-background--transparent teepublicon-variant--circle medium"><img src="https://assets.teepublic.com/assets/teepublicons/pinterest-bf44b194464a76e11f21f63eedb266534dafbdd4d28f646eb1f731f0737f1d27.svg" loading="lazy" height="24" width="24" aria_hidden="true" focusable="false"></span>
 
@@ -1777,7 +1597,7 @@ Share this design:
 
 </a></li>
 <li>
-<a aria-label="Share to Reddit" target="_blank" href="https://nexusenergyperu.com/" class="link gtmRedditProductShare reddit link--1 link--default">
+<a aria-label="Share to Reddit" target="_blank" href="https://oasisandshelter.com/" class="link gtmRedditProductShare reddit link--1 link--default">
 <span class='link__content'>
 <span class="teepublicon teepublicon--blue-default teepublicon-background--transparent teepublicon-variant--circle medium"><img src="https://assets.teepublic.com/assets/teepublicons/reddit-a08812dd6e957c987946f6fa3808df6dada5b1f95e538017767af02adfda49b8.svg" loading="lazy" height="24" width="24" aria_hidden="true" focusable="false"></span>
 
@@ -1785,7 +1605,7 @@ Share this design:
 
 </a></li>
 <li>
-<a aria-label="Share to Tumblr" target="_blank" href="https://nexusenergyperu.com/" class="link jsTumblrProductShare gtmTumblrProductShare tumblr link--1 link--default">
+<a aria-label="Share to Tumblr" target="_blank" href="https://oasisandshelter.com/" class="link jsTumblrProductShare gtmTumblrProductShare tumblr link--1 link--default">
 <span class='link__content'>
 <span class="teepublicon teepublicon--blue-default teepublicon-background--transparent teepublicon-variant--circle medium"><img src="https://assets.teepublic.com/assets/teepublicons/tumblr-72746366fce360d1a23b94973d204278af451141b23aebe1dd3671bfff083f2a.svg" loading="lazy" height="24" width="24" aria_hidden="true" focusable="false"></span>
 
@@ -1836,7 +1656,7 @@ Share this design:
 <div class='m-footer__trusted-badges'>
 <figure class='m-footer__guarantee-image'>
 <span class="teepublicon teepublicon--blue-default teepublicon-background--transparent">
-  <img src="https://blogger.googleusercontent.com/img/a/AVvXsEhza4Tin2yvnNNsnxc7hCrdeuUxkFkHJXJFL9xhVRysNPZVDp6-SxSjV0jCgWmUN5pW5exZY55nQqj1Sd9lTF4JOwOa7nboYUNvpanF0nEZHcdkCn27rhItbGMBdWKJrP2Wnb-a0pQrhbipycoJsqLgfRLWv6KWpi64Cz9gZFdcdtvM3rS-MmRAEFE8EdbP" 
+  <img src="https://blogger.googleusercontent.com/img/a/AVvXsEgZQPcDTac94AeMK65dVzIUBrhUohzAWElS7l6toLAknnzCq8tUCWC4z8Jzlo_rzDw37pFynwmcy4Scn_2P9aH_74aiVGwXhulw5LZRTsZWPWiDz4iJ8eLs5VKuIV4-ii_n0CXN3d8NaqEiMNpBRf8f04UCr3-RWftLFfEUFpyzGRc-gONs3WSGvT9YgOj9" 
        alt="situs toto" 
        style="width:50%; height:auto; max-width:500px; display:block; margin:0 auto;" />
 </span>
@@ -1851,9 +1671,9 @@ Don't love it? We'll fix it. For free.
 </p>
 </div>
 <p class='m-footer__guarantee-link'>
-<a target="_blank" href="https://nexusenergyperu.com/" class="link link__cta link__cta--on-dark link--default">
+<a target="_blank" href="https://oasisandshelter.com/" class="link link__cta link__cta--on-dark link--default">
 <span class='link__content'>
-KOKITOTO
+SMS808
 </span>
 
 </a>
@@ -1875,25 +1695,25 @@ Contact Us
 </span>
 
 </a>
-<a data-gtm-footer-link-text="Coupon Codes" style="--animation-order: " href="https://nexusenergyperu.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
+<a data-gtm-footer-link-text="Coupon Codes" style="--animation-order: " href="https://oasisandshelter.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
 <span class='link__content'>
 Coupon Codes
 </span>
 
 </a>
-<a data-gtm-footer-link-text="FAQ" style="--animation-order: " href="https://nexusenergyperu.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
+<a data-gtm-footer-link-text="FAQ" style="--animation-order: " href="https://oasisandshelter.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
 <span class='link__content'>
 FAQ
 </span>
 
 </a>
-<a data-gtm-footer-link-text="Free Shipping" style="--animation-order: " href="https://nexusenergyperu.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
+<a data-gtm-footer-link-text="Free Shipping" style="--animation-order: " href="https://oasisandshelter.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
 <span class='link__content'>
 Free Shipping
 </span>
 
 </a>
-<a data-gtm-footer-link-text="Refunds &amp; Returns" style="--animation-order: " href="https://nexusenergyperu.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
+<a data-gtm-footer-link-text="Refunds &amp; Returns" style="--animation-order: " href="https://oasisandshelter.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
 <span class='link__content'>
 Refunds &amp; Returns
 </span>
@@ -1920,38 +1740,38 @@ About Us
 </span>
 
 </a>
-<a data-gtm-footer-link-text="Accessibility" style="--animation-order: " href="https://nexusenergyperu.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
+<a data-gtm-footer-link-text="Accessibility" style="--animation-order: " href="https://oasisandshelter.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
 <span class='link__content'>
 Accessibility
 </span>
 
 </a>
-<a data-gtm-footer-link-text="Create a Dashery Store" style="--animation-order: " href="https://nexusenergyperu.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
+<a data-gtm-footer-link-text="Create a Dashery Store" style="--animation-order: " href="https://oasisandshelter.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
 <span class='link__content'>
 Create a Dashery Store
 </span>
 
 </a>
-<a data-gtm-footer-link-text="Careers" style="--animation-order: " href="https://nexusenergyperu.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
+<a data-gtm-footer-link-text="Careers" style="--animation-order: " href="https://oasisandshelter.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
 <span class='link__content'>
 Careers
 </span>
 
 </a>
-<a data-gtm-footer-link-text="Hire an Artist" style="--animation-order: " href="https://nexusenergyperu.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
+<a data-gtm-footer-link-text="Hire an Artist" style="--animation-order: " href="https://oasisandshelter.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
 <span class='link__content'>
 Hire an Artist
 </span>
 
 </a>
 
-<a data-gtm-footer-link-text="Social Responsibility" style="--animation-order: " href="https://nexusenergyperu.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
+<a data-gtm-footer-link-text="Social Responsibility" style="--animation-order: " href="https://oasisandshelter.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
 <span class='link__content'>
 Social Responsibility
 </span>
 
 </a>
-<a data-gtm-footer-link-text="TeePublic Reviews" style="--animation-order: " href="https://nexusenergyperu.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
+<a data-gtm-footer-link-text="TeePublic Reviews" style="--animation-order: " href="https://oasisandshelter.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
 <span class='link__content'>
 TeePublic Reviews
 </span>
@@ -1960,37 +1780,37 @@ TeePublic Reviews
 
 </div></div></div><div class="link-collection m-foot__links-section"><div class="link-collection__body"><h4 class="h__h4 link-collection__header h--no-s">Explore</h4>
 
-<div class="link-collection__content"><a data-gtm-footer-link-text="All Designs" style="--animation-order: " href="https://nexusenergyperu.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
+<div class="link-collection__content"><a data-gtm-footer-link-text="All Designs" style="--animation-order: " href="https://oasisandshelter.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
 <span class='link__content'>
 All Designs
 </span>
 
 </a>
-<a data-gtm-footer-link-text="Content Directory" style="--animation-order: " href="https://nexusenergyperu.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
+<a data-gtm-footer-link-text="Content Directory" style="--animation-order: " href="https://oasisandshelter.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
 <span class='link__content'>
 Content Directory
 </span>
 
 </a>
-<a data-gtm-footer-link-text="Featured Designers" style="--animation-order: " href="https://nexusenergyperu.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
+<a data-gtm-footer-link-text="Featured Designers" style="--animation-order: " href="https://oasisandshelter.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
 <span class='link__content'>
 Featured Artists
 </span>
 
 </a>
-<a data-gtm-footer-link-text="Newest Designers" style="--animation-order: " href="https://nexusenergyperu.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
+<a data-gtm-footer-link-text="Newest Designers" style="--animation-order: " href="https://oasisandshelter.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
 <span class='link__content'>
 Newest Designers
 </span>
 
 </a>
-<a data-gtm-footer-link-text="Newest T-Shirts" style="--animation-order: " href="https://nexusenergyperu.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
+<a data-gtm-footer-link-text="Newest T-Shirts" style="--animation-order: " href="https://oasisandshelter.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
 <span class='link__content'>
 Newest T-Shirts
 </span>
 
 </a>
-<a data-gtm-footer-link-text="Tag Directory" style="--animation-order: " href="https://nexusenergyperu.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
+<a data-gtm-footer-link-text="Tag Directory" style="--animation-order: " href="https://oasisandshelter.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
 <span class='link__content'>
 Tag Directory
 </span>
@@ -1999,7 +1819,7 @@ Tag Directory
 
 </div></div></div><div class="link-collection m-foot__links-section"><div class="link-collection__body"><h4 class="h__h4 link-collection__header h--no-s">Artists</h4>
 
-<div class="link-collection__content"><a data-gtm-footer-link-text="Create" style="--animation-order: " href="https://nexusenergyperu.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
+<div class="link-collection__content"><a data-gtm-footer-link-text="Create" style="--animation-order: " href="https://oasisandshelter.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
 <span class='link__content'>
 Artist Signup
 </span>
@@ -2013,7 +1833,7 @@ Design Guide
 </a>
 
 
-<a data-gtm-footer-link-text="TeePublic Blog" style="--animation-order: " href="https://nexusenergyperu.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
+<a data-gtm-footer-link-text="TeePublic Blog" style="--animation-order: " href="https://oasisandshelter.com/" class="link gtmFooterLink link-collection__link link--1 link--default">
 <span class='link__content'>
 TeePublic Blog
 </span>
@@ -2026,7 +1846,7 @@ TeePublic Blog
 <h4 class='m-footer__social-links-header'>Follow Us</h4>
 <ul class='m-footer__social-links'>
 <li>
-<a data-gtm-footer-link-text="Facebook" target="_blank" href="https://nexusenergyperu.com/" class="link gtmFooterLink link--1 link--default">
+<a data-gtm-footer-link-text="Facebook" target="_blank" href="https://oasisandshelter.com/" class="link gtmFooterLink link--1 link--default">
 <span class='link__content'>
 <span class="teepublicon teepublicon--light-default teepublicon-background--transparent teepublicon-variant--circle size-250 teepublic--border-color-orange-800"><svg xmlns="https://www.w3.org/2000/svg" viewbox="0 0 50 50" width="20" height="20" focusable="false" aria-hidden="true"><path fill-rule="evenodd" d="M28.848 50V24.997h6.902l.915-8.616h-7.817l.012-4.313c0-2.247.214-3.45 3.441-3.45h4.315V0h-6.903c-8.291 0-11.21 4.18-11.21 11.209v5.173h-5.168v8.616h5.168V50h10.345Z" clip-rule="evenodd"></path></svg></span>
 
@@ -2034,7 +1854,7 @@ TeePublic Blog
 
 </a></li>
 <li>
-<a data-gtm-footer-link-text="Instgram" target="_blank" href="https://nexusenergyperu.com/" class="link gtmFooterLink link--1 link--default">
+<a data-gtm-footer-link-text="Instgram" target="_blank" href="https://oasisandshelter.com/" class="link gtmFooterLink link--1 link--default">
 <span class='link__content'>
 <span class="teepublicon teepublicon--light-default teepublicon-background--transparent teepublicon-variant--circle size-250 teepublic--border-color-orange-800"><svg xmlns="https://www.w3.org/2000/svg" viewbox="0 0 50 50" width="20" height="20" focusable="false" aria-hidden="true"><path fill-rule="evenodd" d="M25.003 0c-6.79 0-7.642.03-10.309.151-2.661.122-4.478.543-6.067 1.162-1.645.638-3.04 1.492-4.43 2.882-1.39 1.39-2.244 2.785-2.885 4.428-.62 1.59-1.041 3.408-1.161 6.068-.12 2.667-.15 3.52-.15 10.309 0 6.79.03 7.64.15 10.306.123 2.661.544 4.478 1.162 6.067.64 1.645 1.493 3.04 2.883 4.43 1.39 1.39 2.784 2.246 4.427 2.885 1.591.618 3.408 1.04 6.07 1.161C17.358 49.97 18.21 50 25 50c6.79 0 7.64-.03 10.306-.151 2.661-.122 4.48-.543 6.07-1.161 1.644-.639 3.037-1.495 4.426-2.886 1.39-1.39 2.245-2.784 2.886-4.428.614-1.59 1.036-3.407 1.161-6.068C49.969 32.64 50 31.79 50 25c0-6.79-.031-7.642-.151-10.308-.125-2.662-.547-4.479-1.161-6.068-.641-1.644-1.495-3.04-2.886-4.429-1.39-1.39-2.781-2.244-4.427-2.883C39.781.695 37.964.272 35.302.151 32.635.03 31.787 0 24.995 0h.008ZM22.76 4.505h2.243c6.675 0 7.466.024 10.102.144 2.437.111 3.76.519 4.641.86 1.167.454 1.858.996 2.873 1.87.875.876 1.417 1.709 1.871 2.876.342.88.75 2.203.861 4.64.12 2.636.146 3.427.146 10.1 0 6.671-.026 7.463-.146 10.098-.111 2.438-.519 3.76-.86 4.64-.454 1.168-.997 1.998-1.872 2.873-.875.875-1.706 1.416-2.873 1.87-.88.343-2.204.75-4.641.861-2.636.12-3.427.146-10.102.146-6.676 0-7.467-.026-10.103-.146-2.437-.113-3.76-.52-4.642-.862-1.166-.453-2-.995-2.875-1.87-.875-.875-1.416-1.706-1.87-2.873-.343-.88-.75-2.203-.861-4.64-.12-2.636-.144-3.428-.144-10.104 0-6.676.024-7.463.144-10.099.111-2.437.518-3.76.86-4.642.454-1.166.996-2 1.871-2.875s1.709-1.416 2.875-1.87c.882-.344 2.205-.75 4.643-.862 2.306-.105 3.2-.136 7.859-.141v.006Zm15.587 4.151a3 3 0 1 0 0 6.001 3 3 0 0 0 0-6.002v.001Zm-13.344 3.505c-7.09 0-12.839 5.749-12.839 12.839 0 7.09 5.749 12.836 12.839 12.836 7.09 0 12.836-5.746 12.836-12.836s-5.746-12.838-12.836-12.838Zm0 4.506a8.333 8.333 0 1 1 0 16.666 8.333 8.333 0 0 1 0-16.666Z" clip-rule="evenodd"></path></svg></span>
 
@@ -2042,7 +1862,7 @@ TeePublic Blog
 
 </a></li>
 <li>
-<a data-gtm-footer-link-text="Pinterest" target="_blank" href="https://nexusenergyperu.com/" class="link gtmFooterLink link--1 link--default">
+<a data-gtm-footer-link-text="Pinterest" target="_blank" href="https://oasisandshelter.com/" class="link gtmFooterLink link--1 link--default">
 <span class='link__content'>
 <span class="teepublicon teepublicon--light-default teepublicon-background--transparent teepublicon-variant--circle size-250 teepublic--border-color-orange-800"><svg xmlns="https://www.w3.org/2000/svg" viewbox="0 0 50 50" width="20" height="20" focusable="false" aria-hidden="true"><path fill-rule="evenodd" clip-rule="evenodd" d="M25 0C11.193 0 0 11.19 0 25c0 10.59 6.59 19.637 15.888 23.28-.219-1.976-.414-5.01.088-7.174.452-1.95 2.931-12.424 2.931-12.424s-.747-1.498-.747-3.711c0-3.478 2.012-6.073 4.523-6.073 2.13 0 3.162 1.602 3.162 3.523 0 2.145-1.365 5.35-2.071 8.323-.588 2.49 1.25 4.518 3.702 4.518 4.444 0 7.86-4.686 7.86-11.45 0-5.986-4.3-10.17-10.442-10.17-7.112 0-11.287 5.336-11.287 10.85 0 2.148.824 4.453 1.858 5.705.204.249.233.464.174.718-.189.79-.611 2.488-.694 2.834-.11.458-.363.555-.84.337-3.12-1.454-5.07-6.022-5.07-9.686 0-7.886 5.73-15.131 16.517-15.131 8.673 0 15.412 6.181 15.412 14.44 0 8.616-5.433 15.55-12.97 15.55-2.536 0-4.918-1.317-5.733-2.871 0 0-1.253 4.771-1.557 5.942-.564 2.171-2.09 4.892-3.106 6.553A24.878 24.878 0 0 0 25 50c13.807 0 25-11.193 25-25C50 11.19 38.807 0 25 0Z"></path></svg></span>
 
@@ -2050,7 +1870,7 @@ TeePublic Blog
 
 </a></li>
 <li>
-<a data-gtm-footer-link-text="Reddit" target="_blank" href="https://nexusenergyperu.com/" class="link gtmFooterLink link--1 link--default">
+<a data-gtm-footer-link-text="Reddit" target="_blank" href="https://oasisandshelter.com/" class="link gtmFooterLink link--1 link--default">
 <span class='link__content'>
 <span class="teepublicon teepublicon--light-default teepublicon-background--transparent teepublicon-variant--circle size-250 teepublic--border-color-orange-800"><svg xmlns="https://www.w3.org/2000/svg" viewbox="0 0 50 50" width="20" height="20" focusable="false" aria-hidden="true"><path fill-rule="evenodd" clip-rule="evenodd" d="M47.297 30.934c0-.44-.031-.88-.084-1.315A6.008 6.008 0 0 0 50 24.55a6.014 6.014 0 0 0-6.01-6.01 5.98 5.98 0 0 0-3.784 1.348c-3.665-2.304-8.315-3.691-13.3-3.985l2.6-8.219 7.147 1.682a5.03 5.03 0 0 0 5.01 4.662 5.034 5.034 0 0 0 5.028-5.025 5.035 5.035 0 0 0-5.029-5.028 5.026 5.026 0 0 0-4.459 2.716L28.9 4.737a1.364 1.364 0 0 0-1.616.916L24.06 15.856c-5.372.132-10.418 1.522-14.353 3.96A5.99 5.99 0 0 0 6.01 18.54 6.016 6.016 0 0 0 0 24.55a6 6 0 0 0 2.603 4.944c-.066.475-.1.956-.1 1.44 0 4.144 2.406 7.997 6.778 10.85 4.194 2.735 9.738 4.241 15.619 4.241 5.878 0 11.425-1.506 15.616-4.24 4.372-2.854 6.78-6.707 6.78-10.85Zm-22.27 7.138c3.019 0 5.072-.584 6.275-1.784a1.366 1.366 0 0 1 1.931 1.931c-1.74 1.741-4.425 2.585-8.206 2.585h-.053c-3.782 0-6.466-.844-8.203-2.585a1.364 1.364 0 0 1 0-1.93 1.37 1.37 0 0 1 1.93 0c1.2 1.2 3.25 1.783 6.273 1.783.01 0 .018.004.025.004l.01-.001h.004l.003-.002h.01Zm-4.029-9.805c0-1.868-1.515-3.434-3.384-3.434S14.18 26.4 14.18 28.267c0 1.87 1.565 3.385 3.434 3.385a3.385 3.385 0 0 0 3.384-3.385Zm8 0c0-1.869 1.572-3.434 3.44-3.434 1.87 0 3.385 1.565 3.385 3.434a3.385 3.385 0 0 1-3.384 3.384c-1.869 0-3.44-1.515-3.44-3.384Z"></path></svg></span>
 
@@ -2058,7 +1878,7 @@ TeePublic Blog
 
 </a></li>
 <li>
-<a data-gtm-footer-link-text="Tumblr" target="_blank" href="https://nexusenergyperu.com/" class="link gtmFooterLink link--1 link--default">
+<a data-gtm-footer-link-text="Tumblr" target="_blank" href="https://oasisandshelter.com/" class="link gtmFooterLink link--1 link--default">
 <span class='link__content'>
 <span class="teepublicon teepublicon--light-default teepublicon-background--transparent teepublicon-variant--circle size-250 teepublic--border-color-orange-800"><svg xmlns="https://www.w3.org/2000/svg" viewbox="0 0 50 50" width="20" height="20" focusable="false" aria-hidden="true"><path d="M46.748 20.504c-4.3.01-8.495-1.33-11.992-3.834v17.458a15.878 15.878 0 1 1-13.698-15.734v8.78a7.289 7.289 0 1 0 5.102 6.954V0h8.596c-.006.726.055 1.45.182 2.166a11.935 11.935 0 0 0 5.266 7.836 11.862 11.862 0 0 0 6.544 1.967v8.535Z"></path></svg></span>
 
@@ -2066,7 +1886,7 @@ TeePublic Blog
 
 </a></li>
 <li>
-<a data-gtm-footer-link-text="Twitter" target="_blank" href="https://nexusenergyperu.com/" class="link gtmFooterLink link--1 link--default">
+<a data-gtm-footer-link-text="Twitter" target="_blank" href="https://oasisandshelter.com/" class="link gtmFooterLink link--1 link--default">
 <span class='link__content'>
 <span class="teepublicon teepublicon--light-default teepublicon-background--transparent teepublicon-variant--circle size-250 teepublic--border-color-orange-800"><svg viewbox="0 0 50 50" xmlns="https://www.w3.org/2000/svg" width="20" height="20" focusable="false" aria-hidden="true"><path d="M35.502 6h6.133l-13.4 15.317L44 42.155H31.657l-9.667-12.64-11.063 12.64H4.79l14.333-16.383L4 6.002h12.657l8.738 11.553L35.502 6ZM33.35 38.485h3.398L14.81 9.478h-3.647L33.35 38.485Z"></path></svg></span>
 
@@ -2087,7 +1907,7 @@ TeePublic Blog
 <div class='m-footer__bbb'>
 <a target="_blank" href="https://www.bbb.org/us/ny/new-york/profile/online-retailer/teepublic-0121-168669" class="link link--1 link--default">
 <span class='link__content'>
-<img loading="lazy" alt="Better Business Bureau Accredited Business" src="https://blogger.googleusercontent.com/img/a/AVvXsEh9rLk5mhECZuz8mf6gXNs1YRvaQGUyq5wp8Szq9a2UXSolIBdHAFRFBGh1_7Izi8K728Yu2nb4TA2WCWi654e_anS7c8YFfFKq5UI0RBN1M1EIOIZwz0Ejelr4iqLJ4dFBC8fjcz-rVQoMFELrK2GFOxiZk0RyPVj61dC963VuSU3bZo83X-z6s5hW3bjp" />
+<img loading="lazy" alt="Better Business Bureau Accredited Business" src="https://blogger.googleusercontent.com/img/a/AVvXsEhovK_yELAnbBL8d5w5ixn2FPhvWZrA6A9c9L1D--V-jYly5NL4uP73apERWZXAJaaHHZwBsFFZvrcKwKBJUDdk6pA7u5ohEhLoyWxjVzszobrpKkVhihlxXiAAEegonQyLsuM-FrkW_1oMHe0gNwKn0YM1f2b4MOHvFUTe7fosrXUka-9lXeSsX47XAiWZ" />
 
 </span>
 
@@ -2116,7 +1936,7 @@ United States - $ USD
 </button></div>
 </div>
 <div class='m-footer__legal-bar-subnav'>
-<a data-gtm-footer-link-text="Copyright Policy" rel="nofollow" target="_blank" href="https://nexusenergyperu.com/en-us/articles/29890745668631-General-Product-Safety-Regulation-GSPR" class="link m-footer__legal-bar-subnav-link gtmFooterLink">
+<a data-gtm-footer-link-text="Copyright Policy" rel="nofollow" target="_blank" href="https://oasisandshelter.com/en-us/articles/29890745668631-General-Product-Safety-Regulation-GSPR" class="link m-footer__legal-bar-subnav-link gtmFooterLink">
 <span class='link__content'>
 Product Safety
 </span>
@@ -2254,7 +2074,7 @@ Away from
 <h4>Your Cart is empty...</h4>
 <p>Discover something you'll love!</p>
 <div class='m-tray-cart__body-links'>
-<a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="animals" data-href="https://nexusenergyperu.com/" href="https://nexusenergyperu.com/" class="link vc-pill vc-pill--on-light link--default link--strong tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><svg xmlns="https://www.w3.org/2000/svg" viewbox="0 0 48 48" width="16" height="16" focusable="false" aria-hidden="true"><path fill-rule="evenodd" d="M31.523 35.766a17.393 17.393 0 0 1-10.051 3.178C11.822 38.944 4 31.121 4 21.472 4 11.822 11.822 4 21.472 4c9.65 0 17.472 7.822 17.472 17.472 0 3.741-1.176 7.208-3.178 10.05l7.355 7.356a3 3 0 1 1-4.243 4.243l-7.355-7.355Zm1.42-14.294c0 6.335-5.136 11.471-11.471 11.471s-11.471-5.136-11.471-11.471 5.136-11.471 11.471-11.471 11.471 5.136 11.471 11.471Z" clip-rule="evenodd"></path></svg></span>
+<a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="animals" data-href="https://oasisandshelter.com/" href="https://oasisandshelter.com/" class="link vc-pill vc-pill--on-light link--default link--strong tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><svg xmlns="https://www.w3.org/2000/svg" viewbox="0 0 48 48" width="16" height="16" focusable="false" aria-hidden="true"><path fill-rule="evenodd" d="M31.523 35.766a17.393 17.393 0 0 1-10.051 3.178C11.822 38.944 4 31.121 4 21.472 4 11.822 11.822 4 21.472 4c9.65 0 17.472 7.822 17.472 17.472 0 3.741-1.176 7.208-3.178 10.05l7.355 7.356a3 3 0 1 1-4.243 4.243l-7.355-7.355Zm1.42-14.294c0 6.335-5.136 11.471-11.471 11.471s-11.471-5.136-11.471-11.471 5.136-11.471 11.471-11.471 11.471 5.136 11.471 11.471Z" clip-rule="evenodd"></path></svg></span>
 <span class='link__content'>
 animals
 
@@ -2284,13 +2104,13 @@ food
 
 </span>
 
-</a><a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="funny" data-href="https://nexusenergyperu.com/" href="https://nexusenergyperu.com/" class="link vc-pill vc-pill--on-light link--default link--strong tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><svg xmlns="https://www.w3.org/2000/svg" viewbox="0 0 48 48" width="16" height="16" focusable="false" aria-hidden="true"><path fill-rule="evenodd" d="M31.523 35.766a17.393 17.393 0 0 1-10.051 3.178C11.822 38.944 4 31.121 4 21.472 4 11.822 11.822 4 21.472 4c9.65 0 17.472 7.822 17.472 17.472 0 3.741-1.176 7.208-3.178 10.05l7.355 7.356a3 3 0 1 1-4.243 4.243l-7.355-7.355Zm1.42-14.294c0 6.335-5.136 11.471-11.471 11.471s-11.471-5.136-11.471-11.471 5.136-11.471 11.471-11.471 11.471 5.136 11.471 11.471Z" clip-rule="evenodd"></path></svg></span>
+</a><a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="funny" data-href="https://oasisandshelter.com/" href="https://oasisandshelter.com/" class="link vc-pill vc-pill--on-light link--default link--strong tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><svg xmlns="https://www.w3.org/2000/svg" viewbox="0 0 48 48" width="16" height="16" focusable="false" aria-hidden="true"><path fill-rule="evenodd" d="M31.523 35.766a17.393 17.393 0 0 1-10.051 3.178C11.822 38.944 4 31.121 4 21.472 4 11.822 11.822 4 21.472 4c9.65 0 17.472 7.822 17.472 17.472 0 3.741-1.176 7.208-3.178 10.05l7.355 7.356a3 3 0 1 1-4.243 4.243l-7.355-7.355Zm1.42-14.294c0 6.335-5.136 11.471-11.471 11.471s-11.471-5.136-11.471-11.471 5.136-11.471 11.471-11.471 11.471 5.136 11.471 11.471Z" clip-rule="evenodd"></path></svg></span>
 <span class='link__content'>
 funny
 
 </span>
 
-</a><a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="movies" data-href="https://nexusenergyperu.com/" href="https://nexusenergyperu.com/" class="link vc-pill vc-pill--on-light link--default link--strong tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><svg xmlns="https://www.w3.org/2000/svg" viewbox="0 0 48 48" width="16" height="16" focusable="false" aria-hidden="true"><path fill-rule="evenodd" d="M31.523 35.766a17.393 17.393 0 0 1-10.051 3.178C11.822 38.944 4 31.121 4 21.472 4 11.822 11.822 4 21.472 4c9.65 0 17.472 7.822 17.472 17.472 0 3.741-1.176 7.208-3.178 10.05l7.355 7.356a3 3 0 1 1-4.243 4.243l-7.355-7.355Zm1.42-14.294c0 6.335-5.136 11.471-11.471 11.471s-11.471-5.136-11.471-11.471 5.136-11.471 11.471-11.471 11.471 5.136 11.471 11.471Z" clip-rule="evenodd"></path></svg></span>
+</a><a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="movies" data-href="https://oasisandshelter.com/" href="https://oasisandshelter.com/" class="link vc-pill vc-pill--on-light link--default link--strong tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><svg xmlns="https://www.w3.org/2000/svg" viewbox="0 0 48 48" width="16" height="16" focusable="false" aria-hidden="true"><path fill-rule="evenodd" d="M31.523 35.766a17.393 17.393 0 0 1-10.051 3.178C11.822 38.944 4 31.121 4 21.472 4 11.822 11.822 4 21.472 4c9.65 0 17.472 7.822 17.472 17.472 0 3.741-1.176 7.208-3.178 10.05l7.355 7.356a3 3 0 1 1-4.243 4.243l-7.355-7.355Zm1.42-14.294c0 6.335-5.136 11.471-11.471 11.471s-11.471-5.136-11.471-11.471 5.136-11.471 11.471-11.471 11.471 5.136 11.471 11.471Z" clip-rule="evenodd"></path></svg></span>
 <span class='link__content'>
 movies
 
@@ -2302,19 +2122,19 @@ sci-fi
 
 </span>
 
-</a><a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="sports" data-href="https://nexusenergyperu.com/" href="https://nexusenergyperu.com/" class="link vc-pill vc-pill--on-light link--default link--strong tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><svg xmlns="https://www.w3.org/2000/svg" viewbox="0 0 48 48" width="16" height="16" focusable="false" aria-hidden="true"><path fill-rule="evenodd" d="M31.523 35.766a17.393 17.393 0 0 1-10.051 3.178C11.822 38.944 4 31.121 4 21.472 4 11.822 11.822 4 21.472 4c9.65 0 17.472 7.822 17.472 17.472 0 3.741-1.176 7.208-3.178 10.05l7.355 7.356a3 3 0 1 1-4.243 4.243l-7.355-7.355Zm1.42-14.294c0 6.335-5.136 11.471-11.471 11.471s-11.471-5.136-11.471-11.471 5.136-11.471 11.471-11.471 11.471 5.136 11.471 11.471Z" clip-rule="evenodd"></path></svg></span>
+</a><a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="sports" data-href="https://oasisandshelter.com/" href="https://oasisandshelter.com/" class="link vc-pill vc-pill--on-light link--default link--strong tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><svg xmlns="https://www.w3.org/2000/svg" viewbox="0 0 48 48" width="16" height="16" focusable="false" aria-hidden="true"><path fill-rule="evenodd" d="M31.523 35.766a17.393 17.393 0 0 1-10.051 3.178C11.822 38.944 4 31.121 4 21.472 4 11.822 11.822 4 21.472 4c9.65 0 17.472 7.822 17.472 17.472 0 3.741-1.176 7.208-3.178 10.05l7.355 7.356a3 3 0 1 1-4.243 4.243l-7.355-7.355Zm1.42-14.294c0 6.335-5.136 11.471-11.471 11.471s-11.471-5.136-11.471-11.471 5.136-11.471 11.471-11.471 11.471 5.136 11.471 11.471Z" clip-rule="evenodd"></path></svg></span>
 <span class='link__content'>
 sports
 
 </span>
 
-</a><a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="television" data-href="https://nexusenergyperu.com/" href="https://nexusenergyperu.com/" class="link vc-pill vc-pill--on-light link--default link--strong tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><svg xmlns="https://www.w3.org/2000/svg" viewbox="0 0 48 48" width="16" height="16" focusable="false" aria-hidden="true"><path fill-rule="evenodd" d="M31.523 35.766a17.393 17.393 0 0 1-10.051 3.178C11.822 38.944 4 31.121 4 21.472 4 11.822 11.822 4 21.472 4c9.65 0 17.472 7.822 17.472 17.472 0 3.741-1.176 7.208-3.178 10.05l7.355 7.356a3 3 0 1 1-4.243 4.243l-7.355-7.355Zm1.42-14.294c0 6.335-5.136 11.471-11.471 11.471s-11.471-5.136-11.471-11.471 5.136-11.471 11.471-11.471 11.471 5.136 11.471 11.471Z" clip-rule="evenodd"></path></svg></span>
+</a><a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="television" data-href="https://oasisandshelter.com/" href="https://oasisandshelter.com/" class="link vc-pill vc-pill--on-light link--default link--strong tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><svg xmlns="https://www.w3.org/2000/svg" viewbox="0 0 48 48" width="16" height="16" focusable="false" aria-hidden="true"><path fill-rule="evenodd" d="M31.523 35.766a17.393 17.393 0 0 1-10.051 3.178C11.822 38.944 4 31.121 4 21.472 4 11.822 11.822 4 21.472 4c9.65 0 17.472 7.822 17.472 17.472 0 3.741-1.176 7.208-3.178 10.05l7.355 7.356a3 3 0 1 1-4.243 4.243l-7.355-7.355Zm1.42-14.294c0 6.335-5.136 11.471-11.471 11.471s-11.471-5.136-11.471-11.471 5.136-11.471 11.471-11.471 11.471 5.136 11.471 11.471Z" clip-rule="evenodd"></path></svg></span>
 <span class='link__content'>
 television
 
 </span>
 
-</a><a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="vintage" data-href="https://nexusenergyperu.com/" href="https://nexusenergyperu.com/" class="link vc-pill vc-pill--on-light link--default link--strong tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><svg xmlns="https://www.w3.org/2000/svg" viewbox="0 0 48 48" width="16" height="16" focusable="false" aria-hidden="true"><path fill-rule="evenodd" d="M31.523 35.766a17.393 17.393 0 0 1-10.051 3.178C11.822 38.944 4 31.121 4 21.472 4 11.822 11.822 4 21.472 4c9.65 0 17.472 7.822 17.472 17.472 0 3.741-1.176 7.208-3.178 10.05l7.355 7.356a3 3 0 1 1-4.243 4.243l-7.355-7.355Zm1.42-14.294c0 6.335-5.136 11.471-11.471 11.471s-11.471-5.136-11.471-11.471 5.136-11.471 11.471-11.471 11.471 5.136 11.471 11.471Z" clip-rule="evenodd"></path></svg></span>
+</a><a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="vintage" data-href="https://oasisandshelter.com/" href="https://oasisandshelter.com/" class="link vc-pill vc-pill--on-light link--default link--strong tp-btn--icon"><span class="teepublicon teepublicon--blue-default teepublicon-background--transparent"><svg xmlns="https://www.w3.org/2000/svg" viewbox="0 0 48 48" width="16" height="16" focusable="false" aria-hidden="true"><path fill-rule="evenodd" d="M31.523 35.766a17.393 17.393 0 0 1-10.051 3.178C11.822 38.944 4 31.121 4 21.472 4 11.822 11.822 4 21.472 4c9.65 0 17.472 7.822 17.472 17.472 0 3.741-1.176 7.208-3.178 10.05l7.355 7.356a3 3 0 1 1-4.243 4.243l-7.355-7.355Zm1.42-14.294c0 6.335-5.136 11.471-11.471 11.471s-11.471-5.136-11.471-11.471 5.136-11.471 11.471-11.471 11.471 5.136 11.471 11.471Z" clip-rule="evenodd"></path></svg></span>
 <span class='link__content'>
 vintage
 
@@ -2359,7 +2179,7 @@ Shop All Designs
 </span>
 
 </a>
-<a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="New Tees on Sale" data-href="https://nexusenergyperu.com/" target="_blank" rel="sponsored noopener" style="--animation-order: " href="https://nexusenergyperu.com/" class="link m-tray-shop-secondary__link link-collection__link link--1 link--default">
+<a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="New Tees on Sale" data-href="https://oasisandshelter.com/" target="_blank" rel="sponsored noopener" style="--animation-order: " href="https://oasisandshelter.com/" class="link m-tray-shop-secondary__link link-collection__link link--1 link--default">
 <span class='link__content'>
 Situs Toto
 </span>
@@ -2605,9 +2425,9 @@ Back To Menu
 <div class="vc-header-logo"><a aria-label="Home Link" title="Home" href="https://www.teepublic.com/" class="link vc-header-logo__wrapper link--1 link--default">
 <span class='link__content'>
 <picture>
-  <source srcset="https://blogger.googleusercontent.com/img/a/AVvXsEhza4Tin2yvnNNsnxc7hCrdeuUxkFkHJXJFL9xhVRysNPZVDp6-SxSjV0jCgWmUN5pW5exZY55nQqj1Sd9lTF4JOwOa7nboYUNvpanF0nEZHcdkCn27rhItbGMBdWKJrP2Wnb-a0pQrhbipycoJsqLgfRLWv6KWpi64Cz9gZFdcdtvM3rS-MmRAEFE8EdbP" type="image/webp">
+  <source srcset="https://blogger.googleusercontent.com/img/a/AVvXsEgZQPcDTac94AeMK65dVzIUBrhUohzAWElS7l6toLAknnzCq8tUCWC4z8Jzlo_rzDw37pFynwmcy4Scn_2P9aH_74aiVGwXhulw5LZRTsZWPWiDz4iJ8eLs5VKuIV4-ii_n0CXN3d8NaqEiMNpBRf8f04UCr3-RWftLFfEUFpyzGRc-gONs3WSGvT9YgOj9" type="image/webp">
   <img class="vc-header-logo__image" 
-       src="https://blogger.googleusercontent.com/img/a/AVvXsEhza4Tin2yvnNNsnxc7hCrdeuUxkFkHJXJFL9xhVRysNPZVDp6-SxSjV0jCgWmUN5pW5exZY55nQqj1Sd9lTF4JOwOa7nboYUNvpanF0nEZHcdkCn27rhItbGMBdWKJrP2Wnb-a0pQrhbipycoJsqLgfRLWv6KWpi64Cz9gZFdcdtvM3rS-MmRAEFE8EdbP"
+       src="https://blogger.googleusercontent.com/img/a/AVvXsEgZQPcDTac94AeMK65dVzIUBrhUohzAWElS7l6toLAknnzCq8tUCWC4z8Jzlo_rzDw37pFynwmcy4Scn_2P9aH_74aiVGwXhulw5LZRTsZWPWiDz4iJ8eLs5VKuIV4-ii_n0CXN3d8NaqEiMNpBRf8f04UCr3-RWftLFfEUFpyzGRc-gONs3WSGvT9YgOj9"
        style="max-width:150px; height:auto; display:block; margin:0 auto;" 
        alt="toto togel">
 </picture>
@@ -2714,13 +2534,13 @@ Back To Menu
 </div>
 <div class="m-tray-shop__popular-topics"><h3>Browse All Topics</h3>
 <div class='m-tray-shop__popular-topics-content'>
-<a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="funny" data-href="https://nexusenergyperu.com/" title="Funny" href="https://nexusenergyperu.com/" class="link m-tray-shop__popular-topic vc-pill vc-pill--on-dark link--default link--strong">
+<a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="funny" data-href="https://oasisandshelter.com/" title="Funny" href="https://oasisandshelter.com/" class="link m-tray-shop__popular-topic vc-pill vc-pill--on-dark link--default link--strong">
 <span class='link__content'>
 funny
 </span>
 
 </a>
-<a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="music" data-href="https://nexusenergyperu.com/" title="Music" href="https://nexusenergyperu.com/" class="link m-tray-shop__popular-topic vc-pill vc-pill--on-dark link--default link--strong">
+<a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="music" data-href="https://oasisandshelter.com/" title="Music" href="https://oasisandshelter.com/" class="link m-tray-shop__popular-topic vc-pill vc-pill--on-dark link--default link--strong">
 <span class='link__content'>
 music
 </span>
@@ -2732,19 +2552,19 @@ anime
 </span>
 
 </a>
-<a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="movies" data-href="https://nexusenergyperu.com/" title="Movies" href="https://nexusenergyperu.com/" class="link m-tray-shop__popular-topic vc-pill vc-pill--on-dark link--default link--strong">
+<a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="movies" data-href="https://oasisandshelter.com/" title="Movies" href="https://oasisandshelter.com/" class="link m-tray-shop__popular-topic vc-pill vc-pill--on-dark link--default link--strong">
 <span class='link__content'>
 movies
 </span>
 
 </a>
-<a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="television" data-href="https://nexusenergyperu.com/" title="Television" href="https://nexusenergyperu.com/" class="link m-tray-shop__popular-topic vc-pill vc-pill--on-dark link--default link--strong">
+<a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="television" data-href="https://oasisandshelter.com/" title="Television" href="https://oasisandshelter.com/" class="link m-tray-shop__popular-topic vc-pill vc-pill--on-dark link--default link--strong">
 <span class='link__content'>
 television
 </span>
 
 </a>
-<a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="sports" data-href="https://nexusenergyperu.com/" title="Sports" href="https://nexusenergyperu.com/" class="link m-tray-shop__popular-topic vc-pill vc-pill--on-dark link--default link--strong">
+<a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="sports" data-href="https://oasisandshelter.com/" title="Sports" href="https://oasisandshelter.com/" class="link m-tray-shop__popular-topic vc-pill vc-pill--on-dark link--default link--strong">
 <span class='link__content'>
 sports
 </span>
@@ -2756,13 +2576,13 @@ sci-fi
 </span>
 
 </a>
-<a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="vintage" data-href="https://nexusenergyperu.com/" title="Vintage" href="https://nexusenergyperu.com/" class="link m-tray-shop__popular-topic vc-pill vc-pill--on-dark link--default link--strong">
+<a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="vintage" data-href="https://oasisandshelter.com/" title="Vintage" href="https://oasisandshelter.com/" class="link m-tray-shop__popular-topic vc-pill vc-pill--on-dark link--default link--strong">
 <span class='link__content'>
 vintage
 </span>
 
 </a>
-<a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="animals" data-href="https://nexusenergyperu.com/" title="Animals" href="https://nexusenergyperu.com/" class="link m-tray-shop__popular-topic vc-pill vc-pill--on-dark link--default link--strong">
+<a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="animals" data-href="https://oasisandshelter.com/" title="Animals" href="https://oasisandshelter.com/" class="link m-tray-shop__popular-topic vc-pill vc-pill--on-dark link--default link--strong">
 <span class='link__content'>
 animals
 </span>
@@ -2804,7 +2624,7 @@ All Popular Designs
 
 </span>
 
-</a><a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="FAQ" data-href="https://nexusenergyperu.com/" href="https://nexusenergyperu.com/" class="link m-tray-shop__support-link link--1 link--default link--strong tp-btn--icon"><span class="teepublicon teepublicon--primary-400 teepublicon-background--transparent"><svg xmlns="https://www.w3.org/2000/svg" viewbox="0 0 48 48" width="20" height="20" focusable="false" aria-hidden="true"><path d="M42.049 21.297a1.951 1.951 0 0 1 0 3.902H39.95a1.951 1.951 0 0 1 0-3.902h2.098Zm-36.098 0a1.951 1.951 0 0 0 0 3.902H8.05a1.951 1.951 0 0 0 0-3.902h-2.1ZM22 6a2 2 0 1 1 4 0v1.854a2 2 0 1 1-4 0V6Zm-.373 38a2.927 2.927 0 0 1 0-5.854h5.146a2.927 2.927 0 0 1 0 5.854h-5.146ZM35.353 9.89a2.035 2.035 0 0 1 2.829 0 1.918 1.918 0 0 1 0 2.76l-1.414 1.38a2.035 2.035 0 0 1-2.829 0 1.918 1.918 0 0 1 0-2.76l1.414-1.38Zm-22.706 0a2.035 2.035 0 0 0-2.829 0 1.918 1.918 0 0 0 0 2.76l1.414 1.38a2.035 2.035 0 0 0 2.829 0 1.918 1.918 0 0 0 0-2.76l-1.414-1.38ZM30.5 33c0-.352.121-.708.395-.93A10.98 10.98 0 0 0 35 23.5c0-6.075-4.925-11-11-11s-11 4.925-11 11a10.98 10.98 0 0 0 4.105 8.57c.274.222.395.578.395.93a2.5 2.5 0 0 0 2.5 2.5h8a2.5 2.5 0 0 0 2.5-2.5Z"></path></svg></span>
+</a><a data-rudderstack-event-type="link" data-action="click-&gt;rudderstack--link-clicked#track" data-link-label="FAQ" data-href="https://oasisandshelter.com/" href="https://oasisandshelter.com/" class="link m-tray-shop__support-link link--1 link--default link--strong tp-btn--icon"><span class="teepublicon teepublicon--primary-400 teepublicon-background--transparent"><svg xmlns="https://www.w3.org/2000/svg" viewbox="0 0 48 48" width="20" height="20" focusable="false" aria-hidden="true"><path d="M42.049 21.297a1.951 1.951 0 0 1 0 3.902H39.95a1.951 1.951 0 0 1 0-3.902h2.098Zm-36.098 0a1.951 1.951 0 0 0 0 3.902H8.05a1.951 1.951 0 0 0 0-3.902h-2.1ZM22 6a2 2 0 1 1 4 0v1.854a2 2 0 1 1-4 0V6Zm-.373 38a2.927 2.927 0 0 1 0-5.854h5.146a2.927 2.927 0 0 1 0 5.854h-5.146ZM35.353 9.89a2.035 2.035 0 0 1 2.829 0 1.918 1.918 0 0 1 0 2.76l-1.414 1.38a2.035 2.035 0 0 1-2.829 0 1.918 1.918 0 0 1 0-2.76l1.414-1.38Zm-22.706 0a2.035 2.035 0 0 0-2.829 0 1.918 1.918 0 0 0 0 2.76l1.414 1.38a2.035 2.035 0 0 0 2.829 0 1.918 1.918 0 0 0 0-2.76l-1.414-1.38ZM30.5 33c0-.352.121-.708.395-.93A10.98 10.98 0 0 0 35 23.5c0-6.075-4.925-11-11-11s-11 4.925-11 11a10.98 10.98 0 0 0 4.105 8.57c.274.222.395.578.395.93a2.5 2.5 0 0 0 2.5 2.5h8a2.5 2.5 0 0 0 2.5-2.5Z"></path></svg></span>
 <span class='link__content'>
 <span>FAQ</span>
 
@@ -3212,7 +3032,7 @@ height="0" width="0" style="display:none;visibility:hidden" rel="dns-prefetch"><
 <script>
   window.addEventListener('load', function() {
     if (window.rudderanalytics && true) {
-      window.rudderanalytics.page({"account_type":"guest","cart_id":{"public_id":"9a8c68d58aaa0c110ea9655af8a790a4"},"is_signed_in":false,"iso_currency_code":"USD","request_action":"show","request_controller":"product_pages","request_id":"74165272-george-kittle-f-dallas-kittle","shipping_country":"KH","user_id":null,"experiments":[{"experiment_name":"con-3051-pasf","variant_name":"default"}],"website_id":1,"subdomain_name":"www","domain_name":"teepublic.com","store_name":null,"store_id":null,"xcfb":"1847521452160553165b015e0c0c18084c0160024f18015f0f151511095c1a12304c6d7f3528712a757c3174672d7b3965302431623e773a633a2b7f66652a365b696c035d","canvas":"T-Shirt","canvas_group":"Adult Apparel","canvas_id":1,"design_id":74165272,"design_image_url":"https://res.cloudinary.com/teepublic/image/private/s--L80ZO4l8--/t_Preview/b_rgb:c62b29,c_limit,f_jpg,h_600,q_90,w_600/v1744337506/production/designs/74165272_0.jpg","design_primary_tag":"george-kittle","design_title":"KOKITOTO","is_on_sale":false,"marketing_sku":"21599512ALX2365GPK8","owner_account_type":"Designer","owner_id":6075586,"owner_username":"Hey siriusly","price_usd":23.0,"product_color":"Red","product_description":"Classic T-Shirt, Male Fit | Small, Red","product_gender":"Male Fit","product_id":357,"product_size":"S","product_style":"Classic T-Shirt","search_type":"default"});
+      window.rudderanalytics.page({"account_type":"guest","cart_id":{"public_id":"9a8c68d58aaa0c110ea9655af8a790a4"},"is_signed_in":false,"iso_currency_code":"USD","request_action":"show","request_controller":"product_pages","request_id":"74165272-george-kittle-f-dallas-kittle","shipping_country":"KH","user_id":null,"experiments":[{"experiment_name":"con-3051-pasf","variant_name":"default"}],"website_id":1,"subdomain_name":"www","domain_name":"teepublic.com","store_name":null,"store_id":null,"xcfb":"1847521452160553165b015e0c0c18084c0160024f18015f0f151511095c1a12304c6d7f3528712a757c3174672d7b3965302431623e773a633a2b7f66652a365b696c035d","canvas":"T-Shirt","canvas_group":"Adult Apparel","canvas_id":1,"design_id":74165272,"design_image_url":"https://res.cloudinary.com/teepublic/image/private/s--L80ZO4l8--/t_Preview/b_rgb:c62b29,c_limit,f_jpg,h_600,q_90,w_600/v1744337506/production/designs/74165272_0.jpg","design_primary_tag":"george-kittle","design_title":"SMS808","is_on_sale":false,"marketing_sku":"21599512ALX2365GPK8","owner_account_type":"Designer","owner_id":6075586,"owner_username":"Hey siriusly","price_usd":23.0,"product_color":"Red","product_description":"Classic T-Shirt, Male Fit | Small, Red","product_gender":"Male Fit","product_id":357,"product_size":"S","product_style":"Classic T-Shirt","search_type":"default"});
     }
   });
 </script>
@@ -3224,7 +3044,7 @@ height="0" width="0" style="display:none;visibility:hidden" rel="dns-prefetch"><
  /* =========================================
    FOOTER UTAMA (DARK GOLD ELEGANT)
    ========================================= */
-.KOKITOTO {
+.SMS808 {
   display: flex;
   justify-content: space-around;
   align-items: flex-end; /* Agar tombol tengah bisa melayang */
@@ -3234,7 +3054,7 @@ height="0" width="0" style="display:none;visibility:hidden" rel="dns-prefetch"><
   padding: 12px 10px 20px 10px; /* Bawah lebih lebar */
   
   /* Tema Glassmorphism & Hitam */
-  background: linear-gradient(180deg, #ffba24, #ffba24);
+  background: linear-gradient(180deg, #FF0000, #FF0000);
   border-top: 1px solid #D6BFA4; /* Garis Emas Solid */
   box-shadow: 0 -10px 30px #D6BFA4; /* Bayangan hitam ke atas */
   backdrop-filter: blur(8px); /* Efek kaca buram */
@@ -3246,7 +3066,7 @@ height="0" width="0" style="display:none;visibility:hidden" rel="dns-prefetch"><
 /* =========================================
    BUTTON NAVIGASI (PROMO, LOGIN, DLL)
    ========================================= */
-.KOKITOTO a {
+.SMS808 a {
   text-decoration: none;
   display: flex;
   flex-direction: column;
@@ -3261,31 +3081,31 @@ height="0" width="0" style="display:none;visibility:hidden" rel="dns-prefetch"><
   flex: 1; /* Ukuran rata */
 }
 
-.KOKITOTO a:hover {
+.SMS808 a:hover {
   color: #ffff; /* Berubah Emas saat hover */
   transform: translateY(-3px);
 }
 
 /* Styling Icon (GIF) */
-.KOKITOTO img {
+.SMS808 img {
   width: 24px; height: 24px;
   margin-bottom: 4px;
   filter: grayscale(100%) brightness(200%); /* Buat icon jadi putih/abu biar rapi */
   transition: 0.3s;
 }
 
-.KOKITOTO a:hover img {
+.SMS808 a:hover img {
   filter: drop-shadow(0 0 5px #D6BFA4); /* Glow Emas saat hover */
 }
 
 /* =========================================
    BUTTON TENGAH (DAFTAR) - SPESIAL
    ========================================= */
-.KOKITOTO a.tada {
+.SMS808 a.tada {
   position: relative;
   top: -25px; /* Naikkan posisi ke atas (Melayang) */
   
-  background: linear-gradient(135deg, #ffba24 0%, #ffba24 100%); /* Gradasi Emas Solid */
+  background: linear-gradient(135deg, #FF0000 0%, #FF0000 100%); /* Gradasi Emas Solid */
   color: #ffff; /* Teks Hitam agar kontras */
   
   /* Bentuk Kapsul (Pill) */
@@ -3301,7 +3121,7 @@ height="0" width="0" style="display:none;visibility:hidden" rel="dns-prefetch"><
   animation: floatGold 3s ease-in-out infinite; /* Animasi melayang halus */
 }
 
-.KOKITOTO a.tada img {
+.SMS808 a.tada img {
   margin-bottom: 2px;
   width: 22px; height: 22px;
   filter: brightness(0); /* Icon hitam di atas emas */
@@ -3321,88 +3141,35 @@ height="0" width="0" style="display:none;visibility:hidden" rel="dns-prefetch"><
 
 /* Responsif Mobile Kecil */
 @media (max-width: 350px) {
-  .KOKITOTO a { font-size: 9px; }
-  .KOKITOTO img { width: 20px; height: 20px; }
-  .KOKITOTO a.tada { width: 50px; height: 50px; min-width: 50px; top: -20px; }
+  .SMS808 a { font-size: 9px; }
+  .SMS808 img { width: 20px; height: 20px; }
+  .SMS808 a.tada { width: 50px; height: 50px; min-width: 50px; top: -20px; }
 }
 </style>
 
 <!-- HTML WIDGET FOOTER (Struktur Asli Anda) -->
-<div class="KOKITOTO">
-    <a href="https://situs-togel-online1.pages.dev/" rel="nofollow noopener" target="_blank" class="tada">
-        <img layout="intrinsic" height="20px" width="20px" src="https://blogger.googleusercontent.com/img/a/AVvXsEg4N-LE56s3VxaB6uSZsdglQZYMLReJ8B1nycqxB_Jq_FvzRw2sg0_B6snjBjvS1ZxOCF6a_5jD8vXeWD9P0FwtbnbZhcCiF7wBuqI8rndWulcwtdUztsfxdk7eznNWh2_og6A2U9AQK7DfdYTQeB6iahvjjM7-FUTL-cSn6-U0azPuX1g7_zXy7XOCHjJ8" alt="KOKITOTO Promo">
+<div class="SMS808">
+    <a href="https://mau-melesat-dulu-ya.pages.dev/" rel="nofollow noopener" target="_blank" class="tada">
+        <img layout="intrinsic" height="20px" width="20px" src="https://blogger.googleusercontent.com/img/a/AVvXsEhcY7zBy5tJfgEkF0F6dF0dRn27OA_O0Y0EIoyX4zWJL4WZTTJFAZ2F9G6ldDbwvmkB4MQakVydj502fYqkMefg7fLrY6ivcstfl_uBcDNxOGCONljiJm8EHp573PV1qUVL9rb4Xddb9YFD7huF4xAq0b3yPFJc4guRA_Bi6yOgbeN5YLiu1ogmdM2q5VKA" alt="SMS808 Promo">
         PROMO
     </a>
-    <a href="https://situs-togel-online1.pages.dev/" rel="nofollow noopener" target="_blank" class="tada">
-        <img layout="intrinsic" height="20px" width="20px" src="https://blogger.googleusercontent.com/img/a/AVvXsEg4N-LE56s3VxaB6uSZsdglQZYMLReJ8B1nycqxB_Jq_FvzRw2sg0_B6snjBjvS1ZxOCF6a_5jD8vXeWD9P0FwtbnbZhcCiF7wBuqI8rndWulcwtdUztsfxdk7eznNWh2_og6A2U9AQK7DfdYTQeB6iahvjjM7-FUTL-cSn6-U0azPuX1g7_zXy7XOCHjJ8" alt="KOKITOTO Login">
+    <a href="https://mau-melesat-dulu-ya.pages.dev/" rel="nofollow noopener" target="_blank" class="tada">
+        <img layout="intrinsic" height="20px" width="20px" src="https://blogger.googleusercontent.com/img/a/AVvXsEhcY7zBy5tJfgEkF0F6dF0dRn27OA_O0Y0EIoyX4zWJL4WZTTJFAZ2F9G6ldDbwvmkB4MQakVydj502fYqkMefg7fLrY6ivcstfl_uBcDNxOGCONljiJm8EHp573PV1qUVL9rb4Xddb9YFD7huF4xAq0b3yPFJc4guRA_Bi6yOgbeN5YLiu1ogmdM2q5VKA" alt="SMS808 Login">
         LOGIN
     </a>
-    <a href="https://situs-togel-online1.pages.dev/" rel="nofollow noopener" target="_blank" class="tada">
-        <img layout="intrinsic" height="20px" width="20px" src="https://blogger.googleusercontent.com/img/a/AVvXsEg4N-LE56s3VxaB6uSZsdglQZYMLReJ8B1nycqxB_Jq_FvzRw2sg0_B6snjBjvS1ZxOCF6a_5jD8vXeWD9P0FwtbnbZhcCiF7wBuqI8rndWulcwtdUztsfxdk7eznNWh2_og6A2U9AQK7DfdYTQeB6iahvjjM7-FUTL-cSn6-U0azPuX1g7_zXy7XOCHjJ8" alt="KOKITOTO Daftar">
+    <a href="https://mau-melesat-dulu-ya.pages.dev/" rel="nofollow noopener" target="_blank" class="tada">
+        <img layout="intrinsic" height="20px" width="20px" src="https://blogger.googleusercontent.com/img/a/AVvXsEhcY7zBy5tJfgEkF0F6dF0dRn27OA_O0Y0EIoyX4zWJL4WZTTJFAZ2F9G6ldDbwvmkB4MQakVydj502fYqkMefg7fLrY6ivcstfl_uBcDNxOGCONljiJm8EHp573PV1qUVL9rb4Xddb9YFD7huF4xAq0b3yPFJc4guRA_Bi6yOgbeN5YLiu1ogmdM2q5VKA" alt="SMS808 Daftar">
         DAFTAR
     </a>
-    <a href="https://situs-togel-online1.pages.dev/" rel="nofollow noopener" target="_blank" class="tada">
-        <img layout="intrinsic" height="20px" width="20px" src="https://blogger.googleusercontent.com/img/a/AVvXsEg4N-LE56s3VxaB6uSZsdglQZYMLReJ8B1nycqxB_Jq_FvzRw2sg0_B6snjBjvS1ZxOCF6a_5jD8vXeWD9P0FwtbnbZhcCiF7wBuqI8rndWulcwtdUztsfxdk7eznNWh2_og6A2U9AQK7DfdYTQeB6iahvjjM7-FUTL-cSn6-U0azPuX1g7_zXy7XOCHjJ8" alt="TOTO TOGEL">
+    <a href="https://mau-melesat-dulu-ya.pages.dev/" rel="nofollow noopener" target="_blank" class="tada">
+        <img layout="intrinsic" height="20px" width="20px" src="https://blogger.googleusercontent.com/img/a/AVvXsEhcY7zBy5tJfgEkF0F6dF0dRn27OA_O0Y0EIoyX4zWJL4WZTTJFAZ2F9G6ldDbwvmkB4MQakVydj502fYqkMefg7fLrY6ivcstfl_uBcDNxOGCONljiJm8EHp573PV1qUVL9rb4Xddb9YFD7huF4xAq0b3yPFJc4guRA_Bi6yOgbeN5YLiu1ogmdM2q5VKA" alt="TOTO TOGEL">
         ALTERNATIF
     </a>
-    <a href="https://situs-togel-online1.pages.dev/" rel="nofollow noopener" target="_blank" class="tada">
-        <img class="live-chat-icon" layout="intrinsic" height="20px" width="20px" src="https://blogger.googleusercontent.com/img/a/AVvXsEg4N-LE56s3VxaB6uSZsdglQZYMLReJ8B1nycqxB_Jq_FvzRw2sg0_B6snjBjvS1ZxOCF6a_5jD8vXeWD9P0FwtbnbZhcCiF7wBuqI8rndWulcwtdUztsfxdk7eznNWh2_og6A2U9AQK7DfdYTQeB6iahvjjM7-FUTL-cSn6-U0azPuX1g7_zXy7XOCHjJ8"alt="KOKITOTO LiveChat">
+    <a href="https://mau-melesat-dulu-ya.pages.dev/" rel="nofollow noopener" target="_blank" class="tada">
+        <img class="live-chat-icon" layout="intrinsic" height="20px" width="20px" src="https://blogger.googleusercontent.com/img/a/AVvXsEhcY7zBy5tJfgEkF0F6dF0dRn27OA_O0Y0EIoyX4zWJL4WZTTJFAZ2F9G6ldDbwvmkB4MQakVydj502fYqkMefg7fLrY6ivcstfl_uBcDNxOGCONljiJm8EHp573PV1qUVL9rb4Xddb9YFD7huF4xAq0b3yPFJc4guRA_Bi6yOgbeN5YLiu1ogmdM2q5VKA"alt="SMS808 LiveChat">
         LIVE CHAT
     </a>
 </div>
-<!-- snowflake start -->
-<!DOCTYPE html>
-<html>
-<head>
-
-<style>
-
-   .snowflake{color:#fff;font-size:1em;font-family:Arial,sans-serif;text-shadow:0 0 5px #000;position:fixed;top:-10%;z-index:9999;-webkit-user-select:none;-moz-user-select:none;-ms-user-select:none;user-select:none;cursor:default;-webkit-animation-name:snowflakes-fall,snowflakes-shake;-webkit-animation-duration:10s,3s;-webkit-animation-timing-function:linear,ease-in-out;-webkit-animation-iteration-count:infinite,infinite;-webkit-animation-play-state:running,running;animation-name:snowflakes-fall,snowflakes-shake;animation-duration:10s,3s;animation-timing-function:linear,ease-in-out;animation-iteration-count:infinite,infinite;animation-play-state:running,running}@-webkit-keyframes snowflakes-fall{0%{top:-10%}100%{top:100%}}@-webkit-keyframes snowflakes-shake{0%,100%{-webkit-transform:translateX(0);transform:translateX(0)}50%{-webkit-transform:translateX(80px);transform:translateX(80px)}}@keyframes snowflakes-fall{0%{top:-10%}100%{top:100%}}@keyframes snowflakes-shake{0%,100%{transform:translateX(0)}50%{transform:translateX(80px)}}.snowflake:nth-of-type(0){left:1%;-webkit-animation-delay:0s,0s;animation-delay:0s,0s}.snowflake:first-of-type{left:10%;-webkit-animation-delay:1s,1s;animation-delay:1s,1s}.snowflake:nth-of-type(2){left:20%;-webkit-animation-delay:6s,.5s;animation-delay:6s,.5s}.snowflake:nth-of-type(3){left:30%;-webkit-animation-delay:4s,2s;animation-delay:4s,2s}.snowflake:nth-of-type(4){left:40%;-webkit-animation-delay:2s,2s;animation-delay:2s,2s}.snowflake:nth-of-type(5){left:50%;-webkit-animation-delay:8s,3s;animation-delay:8s,3s}.snowflake:nth-of-type(6){left:60%;-webkit-animation-delay:6s,2s;animation-delay:6s,2s}.snowflake:nth-of-type(7){left:60%;-webkit-animation-delay:2.5s,1s;animation-delay:2.5s,1s}.snowflake:nth-of-type(8){left:10%;-webkit-animation-delay:1s,0s;animation-delay:1s,0s}.snowflake:nth-of-type(9){left:40%;-webkit-animation-delay:3s,1.5s;animation-delay:3s,1.5s}.snowflake:nth-of-type(10){left:25%;-webkit-animation-delay:2s,0s;animation-delay:2s,0s}.snowflake:nth-of-type(11){left:65%;-webkit-animation-delay:4s,2.5s;animation-delay:4s,2.5s}
-</style>
-<title></title>
-</head>
-<body>
-<div class="snowflakes" aria-hidden="true">
-<div class="snowflake"><img src=
-"https://blogger.googleusercontent.com/img/a/AVvXsEgRYT3jtHYnKWRg7WqACf5y7TAUZp4S-UV69k4KCFv8rK4oX2SyjaOqbgNs56ZVIjI5iAOPxtJRJ1OVkDT13_YQtdCL9jo5LrHH7ZKm6Vp1JAVZdct0RQI7EKJBuPrcXpb7lOp05XxYqXPyUm1-ScLn-97JxJwg-1rd6SeC13uL4mavFk1ZXixaqt8iznwa"
-height="70px" width="70px;"></div>
-<div class="snowflake"><img src=
-"https://blogger.googleusercontent.com/img/a/AVvXsEgRYT3jtHYnKWRg7WqACf5y7TAUZp4S-UV69k4KCFv8rK4oX2SyjaOqbgNs56ZVIjI5iAOPxtJRJ1OVkDT13_YQtdCL9jo5LrHH7ZKm6Vp1JAVZdct0RQI7EKJBuPrcXpb7lOp05XxYqXPyUm1-ScLn-97JxJwg-1rd6SeC13uL4mavFk1ZXixaqt8iznwa"
-height="70px" width="70px;"></div>
-<div class="snowflake"><img src=
-"https://blogger.googleusercontent.com/img/a/AVvXsEgRYT3jtHYnKWRg7WqACf5y7TAUZp4S-UV69k4KCFv8rK4oX2SyjaOqbgNs56ZVIjI5iAOPxtJRJ1OVkDT13_YQtdCL9jo5LrHH7ZKm6Vp1JAVZdct0RQI7EKJBuPrcXpb7lOp05XxYqXPyUm1-ScLn-97JxJwg-1rd6SeC13uL4mavFk1ZXixaqt8iznwa"
-height="70px" width="70px;"></div>
-<div class="snowflake"><img src=
-"https://blogger.googleusercontent.com/img/a/AVvXsEgRYT3jtHYnKWRg7WqACf5y7TAUZp4S-UV69k4KCFv8rK4oX2SyjaOqbgNs56ZVIjI5iAOPxtJRJ1OVkDT13_YQtdCL9jo5LrHH7ZKm6Vp1JAVZdct0RQI7EKJBuPrcXpb7lOp05XxYqXPyUm1-ScLn-97JxJwg-1rd6SeC13uL4mavFk1ZXixaqt8iznwa"
-height="70px" width="70px;"></div>
-<div class="snowflake"><img src=
-"https://blogger.googleusercontent.com/img/a/AVvXsEgRYT3jtHYnKWRg7WqACf5y7TAUZp4S-UV69k4KCFv8rK4oX2SyjaOqbgNs56ZVIjI5iAOPxtJRJ1OVkDT13_YQtdCL9jo5LrHH7ZKm6Vp1JAVZdct0RQI7EKJBuPrcXpb7lOp05XxYqXPyUm1-ScLn-97JxJwg-1rd6SeC13uL4mavFk1ZXixaqt8iznwa"
-height="70px" width="70px;"></div>
-<div class="snowflake"><img src=
-"https://blogger.googleusercontent.com/img/a/AVvXsEgRYT3jtHYnKWRg7WqACf5y7TAUZp4S-UV69k4KCFv8rK4oX2SyjaOqbgNs56ZVIjI5iAOPxtJRJ1OVkDT13_YQtdCL9jo5LrHH7ZKm6Vp1JAVZdct0RQI7EKJBuPrcXpb7lOp05XxYqXPyUm1-ScLn-97JxJwg-1rd6SeC13uL4mavFk1ZXixaqt8iznwa"
-height="70px" width="70px;"></div>
-</div>
-<style>
-.alert {
-    border: 1px solid #D4217C; 
-    box-shadow: #D4217C 0px 0px 10px 2px;
-    border-radius: 5px;
-    margin-right: 25px;
-    margin-left: 25px;
-    margin-top: 10px;
-    margin-bottom: -25px;
-}
-.blinking{
-    animation:blinkingText 1.5s infinite;
-    margin:auto;
-    display:block;
-    font-weight: 900;
-    color:#e3e3e3;
-    text-shadow:#e3e3e3 0px 0px 3px;
-}
-</style>
-  <!-- snowflake end -->
-
 <script defer src="https://static.cloudflareinsights.com/beacon.min.js/vcd15cbe7772f49c399c6a5babf22c1241717689176015" integrity="sha512-ZpsOmlRQV6y907TI0dKBHq9Md29nnaEIPlkf84rnaERnq6zvWvPUqr2ft8M1aS28oN72PdrCzSjY4U6VaAw1EQ==" data-cf-beacon='{"rayId":"988fbaf97d94527e","serverTiming":{"name":{"cfExtPri":true,"cfEdge":true,"cfOrigin":true,"cfL4":true,"cfSpeedBrain":true,"cfCacheStatus":true}},"version":"2025.9.1","token":"a4bbefbaabb542b69e70d121f70fa980"}' crossorigin="anonymous"></script>
 <script defer src="https://static.cloudflareinsights.com/beacon.min.js/vcd15cbe7772f49c399c6a5babf22c1241717689176015" integrity="sha512-ZpsOmlRQV6y907TI0dKBHq9Md29nnaEIPlkf84rnaERnq6zvWvPUqr2ft8M1aS28oN72PdrCzSjY4U6VaAw1EQ==" data-cf-beacon='{"version":"2024.11.0","token":"c9ab9a90e7504c11be6e4d034d653543","r":1,"server_timing":{"name":{"cfCacheStatus":true,"cfEdge":true,"cfExtPri":true,"cfL4":true,"cfOrigin":true,"cfSpeedBrain":true},"location_startswith":null}}' crossorigin="anonymous"></script>
 <script defer src="https://static.cloudflareinsights.com/beacon.min.js/vcd15cbe7772f49c399c6a5babf22c1241717689176015" integrity="sha512-ZpsOmlRQV6y907TI0dKBHq9Md29nnaEIPlkf84rnaERnq6zvWvPUqr2ft8M1aS28oN72PdrCzSjY4U6VaAw1EQ==" data-cf-beacon='{"version":"2024.11.0","token":"c9ab9a90e7504c11be6e4d034d653543","r":1,"server_timing":{"name":{"cfCacheStatus":true,"cfEdge":true,"cfExtPri":true,"cfL4":true,"cfOrigin":true,"cfSpeedBrain":true},"location_startswith":null}}' crossorigin="anonymous"></script>
@@ -3422,7 +3189,7 @@ height="70px" width="70px;"></div>
 <script defer src="https://static.cloudflareinsights.com/beacon.min.js/v67327c56f0bb4ef8b305cae61679db8f1769101564043" integrity="sha512-rdcWY47ByXd76cbCFzznIcEaCN71jqkWBBqlwhF1SY7KubdLKZiEGeP7AyieKZlGP9hbY/MhGrwXzJC/HulNyg==" data-cf-beacon='{"version":"2024.11.0","token":"0fac95cd58284e678355f7e01a27d287","r":1,"server_timing":{"name":{"cfCacheStatus":true,"cfEdge":true,"cfExtPri":true,"cfL4":true,"cfOrigin":true,"cfSpeedBrain":true},"location_startswith":null}}' crossorigin="anonymous"></script>
 <style>
 :root {
-    --color-link-500: #ffba24 !important;
+    --color-link-500: #FF0000 !important;
 }
 
 
